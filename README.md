@@ -32,7 +32,8 @@ have, however, provided scripts that will construct our data splits. To build th
     ./bin/build_fisher.sh <[LDC2010T04](http://catalog.ldc.upenn.edu/LDC2010T04) directory>
     ./bin/build_callhome.sh <[LDC96T17](http://catalog.ldc.upenn.edu/LDC96T17) directory>
 
-This will create the following files:
+If you define the environment variables `$LDC2010T04` and `$LDC96T17` to point to these directories,
+you can simply type `make`. Either way, you should end up with the following files:
 
     corpus/ldc/fisher_train.es
     corpus/ldc/fisher_dev.es
