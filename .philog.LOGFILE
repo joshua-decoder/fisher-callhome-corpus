@@ -1,0 +1,1 @@
+Fri Nov 22 12:33:05 EST 2013 /home/hltcoe/mpost/data/fisher_callhome_kaldi for corpus in fisher_{train,dev,dev2,test} callhome_{train,devtest,evltest}; do for file in $(cat splits/$corpus); do segment=$(echo $file | perl -pe 's/fisher\///; s/callhome\///'); for ids in $(cat ../fisher_callhome_translation/$file.mapping); do echo $segment $ids; done; done > mapping/$corpus; done
