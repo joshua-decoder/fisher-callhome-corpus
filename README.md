@@ -27,13 +27,20 @@ Fisher test sets) English references. The Spanish side always has the extension 
 among (a) LDC transcript (b) Kaldi ASR output (c) Kaldi lattice output and (d) lattice oracle paths.
                                          
 Due to licensing restrictions, we cannot include the LDC Spanish transcripts with this dataset. We
-have, however, provided scripts that will construct our data splits. To build these, run:
+have, however, provided scripts that will construct our data splits. To build these, first define
+the environment variables `$LDC2010T04` and `$LDC96T17` to point to your
+[LDC2010T04](http://catalog.ldc.upenn.edu/LDC2010T04) and
+[LDC96T17](http://catalog.ldc.upenn.edu/LDC96T17) installations, respectively. Then run:
 
-    ./bin/build_fisher.sh <[LDC2010T04](http://catalog.ldc.upenn.edu/LDC2010T04) directory>
-    ./bin/build_callhome.sh <[LDC96T17](http://catalog.ldc.upenn.edu/LDC96T17) directory>
+    make
 
-If you define the environment variables `$LDC2010T04` and `$LDC96T17` to point to these directories,
-you can simply type `make`. Either way, you should end up with the following files:
+You can also run the two scripts directly by manually listing the directories, e.g.,
+
+    ./bin/build_fisher.sh $LDC2010T04
+    ./bin/build_callhome.sh $LDC96T17
+
+Either way, you should end up with the following generated files, in addition to the files included
+with the data release:
 
     corpus/ldc/fisher_train.es
     corpus/ldc/fisher_dev.es
