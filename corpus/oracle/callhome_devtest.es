@@ -56,7 +56,7 @@ este cuando veo tengamos pues este los confunden todo todo escucho
 pero sabes ya nos avisas pues ah
 pero todavía no estamos este verdes
 claro hasta las
-lo que lo que quiero hacer es pedir licencia cada vez se me  licencia por un año
+lo que lo que quiero hacer es pedir licencia cada vez se me licencia por un año
 ajá
 pero
 claro
@@ -122,8 +122,8 @@ el ocho
 vaya es otra pues
 no el lunes
 no exacto pues hoy siete
-ah ah verdad 
- oye y él estaba en la lista no mucha gente visitando a en la carta que te mandado de todas maneras haberlo la vegetación ya
+ah ah verdad
+oye y él estaba en la lista no mucha gente visitando a en la carta que te mandado de todas maneras haberlo la vegetación ya
 y dije
 que dice que la iglesia decíamos que le pase muy bonito que sea un vía aniversario religión
 habla con ella porque te la paso
@@ -141,11 +141,11 @@ siempre es como
 ay que haya pasado que nos hemos a una semana he perros con recibo enferma que le dio como un virus el estómago
 ay
 y dejen hoy estamos más descansado
-ay la  este
+ay la este
 pero no hemos hormiga en las noches y ni ni me acuerdo ni se en kenya vivimos que par de distraídos
-vecinitas entrando en bandas  oye y el y el trece presentaciones
-sí 
-yeah 
+vecinitas entrando en bandas oye y el y el trece presentaciones
+sí
+yeah
 te estás de eso esas este estoy estudiando porque te estás predicando la carta que le mete a de que yo no había decidido
 sí ni a no ser científica el correo si lo que no me chequear el correo tampoco
 ah claro por supuesto
@@ -198,7 +198,7 @@ ves
 este qué tamaño están los chiquitos yo quiero mandarte unas cuantas para el invierno
 de etiqueta manutención sí
 eh eh sí grandecita
- pero
+pero
 la la la la verónica que edad tiene ya
 pero desde nueve meses
 nueve no ya para un años debe ser para un año
@@ -226,7 +226,7 @@ oye pero pero aprendimos a cinco minutos
 aquí también quiten que quiere hablar visitar este todavía tenemos tiempo
 sí pero este
 ya
-no  que no
+no que no
 delincuentes que no ay qué bueno
 seis meses que no hasta ahora está todo tranquilo sí
 que ya no ya paso que bueno
@@ -237,7 +237,7 @@ triste pensando de que el día de tu cumpleaños
 sí pues
 no te puede yo llamar no sabes que acá la compañía es tan cara
 sí es una tran tran timidilla no
-sí  no me no
+sí no me no
 tranquila y el diez y mitad a verónica
 sí y sí
 me dice que está bien pero
@@ -269,7 +269,7 @@ estás muy bien
 pero y gente ahora el carito
 um sí sí
 y viene la verónica se sienta y se sí eran las letras y sea ah ah ah
-ajá está está interesante 
+ajá está está interesante
 ella también uy sí
 tiene sus nada esperan que lindas que oye te llaman día
 sí hasta sin me llamo miguel temprano me llamo milagros temprano
@@ -284,7 +284,7 @@ en eso que viene la cartera la que siempre me toca la puerta
 sí
 yo le digo yo recibo ésta viene a la casa
 te
-y dices y que le digo a la cartera caso estoy  pero voy a me conoce a sí
+y dices y que le digo a la cartera caso estoy pero voy a me conoce a sí
 que te la mandé certificada para que te llegara rápido
 sí en cinco y siete días ha venido
 tal ves religión
@@ -295,7 +295,7 @@ seguro ya desde que sí pero echado después verdad no sé cuando te echado
 ah mhm así que y eso pues estamos teniendo ya todo para
 yo sí
 regresar pues en enero
-ya sí 
+ya sí
 ya ya me compré zapatos ya comprandole tengo mis pantalones ahora tengo compra unas serás
 ya ah estará ya ya ya
 bien bonitas que tiran su latas vaya para todo pensando
@@ -312,7 +312,7 @@ ajá te va hacer veinte o antes por el veinte te vas no
 así más o menos quién te parece
 sí está bien está bien
 y eres todos regresar el diez
- hace la navidades hace la vida allá no
+hace la navidades hace la vida allá no
 está bien para estas planeando sí sí sí pero
 seguramente nosotros de deberías de enero para abajo no o sea que sí sí
 precios ya pues estamos bien pues ya
@@ -354,7 +354,7 @@ mm
 te das cuenta pero yo puedo
 aquí ya sí visto está bien pero un saquen medio duro mhm
 hay hay no no no sentarte mira mayra no te compliquen la vida yo la voy a comprar acá entiendes
-bueno como un  una creencias en exactamente de gente iba veo ahí dejame ver una vez más
+bueno como un una creencias en exactamente de gente iba veo ahí dejame ver una vez más
 entiendes ya a ver ya bueno ya y
 pero de repente han creído más con estas tiendas cambian tanto
 ya pero me ahorita ya ya vistas
@@ -373,14 +373,14 @@ que para nosotros pues eso es una cosa
 por el humedad pues por la humedad lo hace peor
 por la humedad noventa y noventa y ocho noventa y nueve por ciento de la hijita ya
 ah claro
-ya no tenemos dos yo sino van aquí es poco pescados  sí pero ya
+ya no tenemos dos yo sino van aquí es poco pescados sí pero ya
 claro hay sí sí sí yo yo llevarme una
 ah
 él tiene llevarme una mi calefacción sé chiquita de todas maneras
 ay no no no no tanto como eso no
 ajá
 acá te da una pulmonía terrible no hija
-sí 
+sí
 no no no no vale la pena
 ya ajá
 vaca no es para tanto esto es un extra
@@ -417,7 +417,7 @@ estaba en alemania pues no porque vino estuvo casi tiene dos meses
 y se regresó
 y se regresó a alemania sí no sé si hayas venido ahora último no creo ah
 ah
-pobrecita no quebrados no hija 
+pobrecita no quebrados no hija
 y eh a parecer pobre pobres
 sí y bueno ah hija mi amor oye ah ajá
 mmm mucho mucho fumar pues mucho mucho fumaba mucho tomaba el señor estás tu
@@ -446,7 +446,7 @@ ah tu hablas no más oye quiero que me
 que están haciendo tu ahí oye
 es un trabajo
 qué sé yo no era practiva o sin computador qué qué qué estás haciendo de
- no te preocupes voy escuchar
+no te preocupes voy escuchar
 pues sí
 este han recibido mi encomienda
 hacer las mochilas una trampa oh
@@ -531,7 +531,7 @@ ya están en unas
 es está por ahí est
 o cuando no sé
 oye no por eh y bueno por ahí jorge
-oye domingos  no no ha venido a venir la próxima semana este pues
+oye domingos no no ha venido a venir la próxima semana este pues
 quiénes a por ahí
 no estoy con mi pataletas pata ricardo
 qué es más grande estaba nadie
@@ -625,7 +625,7 @@ claro que te cansa y tu feo que todo el mundo
 ya
 como tu dices que los tienen otra mucha te dice que es un pavo ya tengan medicina de de estados unidos
 oye pero oye pucha que una una falla yo pensaba que lo tenías listo ya la conversión oye pero ya entiende a sí
-que tienen  son chicas
+que tienen son chicas
 por eso pues
 las las que viene de tuyo mira lo que venden encuentro yo son puro grande unos cuarenta treinta y tres y es una es chica que muy poco hay
 bueno libre
@@ -674,7 +674,7 @@ tontera que dice que se me ocurrió acarrear no ladrillos
 voy
 he estado en broma como un me he estado perdía hoy día estado mejor
 pero usted tiene que mirar un poco el calendario com amigos vaya hacer esas cosas claro
-y  y todos me dicen lo mismo es que yo sí me siento buen anotó pelado perdida pero ya te mejor 
+y y todos me dicen lo mismo es que yo sí me siento buen anotó pelado perdida pero ya te mejor
 y pero sí pero es que no puede no puede abusar de de su buen ánimo phone mami
 es que no no puedo estar sin hacer nada porque el hacen nada se uno se pone más vieja se se le endurece las rodillas las todas las coyunturales tiene que estar haciendo algo uno piensa ya se ha pasé ya había estado mejor
 no sí pero y pero usted puede estar haciendo algo pero sin hacer esfuerzo me puede salir vitrinear qué se yo pasear un poco pero tiene que pues
@@ -682,7 +682,7 @@ sí salgo todos los días todos los días salgo ahora voy a empezar el lunes en 
 eso me parece bien
 sí pues si porque estuve el año pasado haciendo escenas y casi todo el invierno equity bien el sitio de empezar el lunes sabés
 cero problema ah eso tiene que hacer porque la las tiendas no la pasear a la cara constantemente
- sí claro y como son profesoras titulares así que ella le diciendo lo las cosas que puede hacer uno y la que no puede ser es y yo yo misma
+sí claro y como son profesoras titulares así que ella le diciendo lo las cosas que puede hacer uno y la que no puede ser es y yo yo misma
 um
 le digo a la profesora eh no puedo hacer este ejercicio por el problema que tengo la a la espalda no
 ya claro
@@ -698,7 +698,7 @@ y cuestiones de yo como están los ni
 ya eso y a los niños somos tan
 la calle la carini te sale al lado tuyo él
 claro la karina sale al lado mío cuando jugo no no pero
-em  trabajando ciento mmm
+em trabajando ciento mmm
 claro sí sí esa foto mire fue por suerte estábamos viendo partido fútbol el brasil
 sí
 sí ganó me bolsa de brasil y el tipo del newspaper
@@ -708,8 +708,8 @@ um
 así que me preguntó sí podía yo dije que sí
 sí ya
 así que al día el domingo siguiente compramos diario y salía y bien grandote como vuestras
-yo le digo que tiene que a sacado comprado todos los días yo mandarle a toda la familia 
- no yo tengo mami yo tengo la copia suya yo le vas
+yo le digo que tiene que a sacado comprado todos los días yo mandarle a toda la familia
+no yo tengo mami yo tengo la copia suya yo le vas
 válgame sobreseimiento
 por esperar y debo flojera realmente no se la mandado le tengo un cuarto postal de qué va también que se lo quiero mandar de aquí de flojera donde hablamos por teléfono me late escribirte
 ya oye a mi también donde tu me llamas yo no tengo nada que cuánta no
@@ -734,7 +734,7 @@ cincuenta cincuenta y ocho rondo
 ya
 esto me salieron casi cincuenta y cinco y que me quedaron
 de propina
-un este eh propios  para como para la locomoción
+un este eh propios para como para la locomoción
 la locomoción claro locomoción en el en la respectiva once
 de para la locomoción no porque no porque tiene que haber sido un cafecito fue un cafecito
 un cafecito
@@ -748,7 +748,7 @@ me quedé tan qué manden te hiciste licencia ya como que me y me sentía tan gr
 ya
 así que de de repente te éste ayer y papelito cuando el escribe a ti la ernestina es si me acordaba del
 a mi también sobre la sobre mami sobre las cartas eh nosotros vamos por en esta dirección hasta hasta el quince de septiembre nada
-mm mm  ya
+mm mm ya
 ya de ahí esta elección no va a valer no porque de para el frente yo no sé en quería específico nos vamos a cambiar de estado
 ya oye cu cualquier parte te entienden de ahí hasta dónde te hay
 eh bueno yo yo yo me voy al laboratorio por seis meses
@@ -768,7 +768,7 @@ ya
 si yo me desembocó bien en lado en el laboratorio la posible de que me que grande si yo hice vuelo mal la probabilidad de que yo me devuelva grande tammy
 ya y hablen te volverías ni dios quiera donde te volverías
 no muy de por devolver obras siguiendo o o a chile mismo no sé cómo puede ser eso
-a las  pues que qué lástima setiembre y la
+a las pues que qué lástima setiembre y la
 ah pero no no tengo
 la la cosa mala pelado
 sí yo no tengo ninguno intere
@@ -793,7 +793,7 @@ a tennessee
 a tres meses ya a la universidad de okland okay
 claro no a la a la ciudad de no vi al laboratorio real de de patrick
 no
-a no  no
+a no no
 a no hay que buscar cositas viste no también
 claro acá vienes o equis de i que le le no no esa no estarse la populación de oye
 yo y yo ya ya pero eso no tiene no hay un hombre sí
@@ -804,7 +804,7 @@ ya ya o sea que tenía un paso bastante grande que haya y todo
 sí madre un paso sí el que a en ciertas personas me da un poco de envidia porque un laboratorio bien importante entre me sentía ser americano
 ya oh porquito jalar dios quiera que resulte todo bien bueno eso depende de ti no más mi
 ya mami va va depender de mío es mami te yo yo me prodría despedirte y cruzar una pareja con la pasó le basado
-claro sí  y darle un montón vestir o para todos un montón de felicidad para todos también y que todo te había muy bien pegadito
+claro sí y darle un montón vestir o para todos un montón de felicidad para todos también y que todo te había muy bien pegadito
 
 ya no
 que me llamarán antes que te vayas
@@ -816,7 +816,7 @@ ya un beso grande usted cómo mami
 mañana también los recortes pues vas a mi hijo
 sí se lo voy a pasar trabajo para usted también mucho
 novecientos para ti no
-aló hola mi cómo hay 
+aló hola mi cómo hay
 partícipes antes con la parte paty paty escuchan antes antes de conversar tienes que autorizará que te gran esta esta conversa tienes que decir autorizadas en donde venden de mi conversación
 vivo porque esto lo
 ay por qué autorizo la grabación de la conversación
@@ -829,9 +829,9 @@ sí me está cayendo revis la pasamos bien y estoy bien acompañada incluso punt
 ya me ya dile eh bueno y darle tiene que ser esa que mi pero va a llamar a tu casa no por el mismo sí temita
 um ya listo ya
 oye que cuénteme te cuento vos paty aquella que hacés secreto que te conté cuando estaban aquí en miami
-ya 
+ya
 hoy día me lo confirmaron y el de que un me no me voy a no sí la ma con toda la familia trabajar en el laboratorio de papel
- ya ni que estupendo te resultó entonces
+ya ni que estupendo te resultó entonces
 me resultó
 es fantástico tienes que ya ir a buscar departamento sea cosa mm
 claro claro de que un te vamos con administraba con camet ataca vaya a arrendar departamento y a trabajar
@@ -890,16 +890,16 @@ si
 ah no en
 pero los hay pero eh henrique pero no estados unidos sabes la tienda hola
 y es
- eh martini cono lo conoces
+eh martini cono lo conoces
 ah me eso en texas
- bueno sigo y entonces este mm qué te iba decir entre si estaba estados tie está bien
+bueno sigo y entonces este mm qué te iba decir entre si estaba estados tie está bien
 ya
 hace hace cuánto tiempo cuando yo tuve mis reservas ella precisamente al rato sobre vuelo horarios y asiento entendés
 um
 y se las de origen se le dio la mina esta que se encarga del del banco que historia para que le compré eso
 un
-no yo tengo un carajo eso llaman le puso lagos 
-ah que suerte  internacional yo te entonces
+no yo tengo un carajo eso llaman le puso lagos
+ah que suerte internacional yo te entonces
 ah ya le dijo no hay ningún problema una una cartera boludo
 éste año
 y qué vas porque el mes
@@ -911,11 +911,11 @@ bien bien
 yo digo que tenemos más o menos claro
 bueno eso está bien porque de esa manera no se promoverla dos juntas esas
 sería ay jorge si la joda era esa
- no pero viste
+no pero viste
 la joda divertida era volver juntas en los aviones
 exactamente pero porque acá este seminarios de que te dicen cómo tienes que cuidar tubiste y
 ya bueno tía y averiguaste como seguridad para que el estado yanqui no sé que con nuestras cosas estaba me dijo ah ya sé que fuiste ese seminario
-ya 
+ya
 y
 unos no fuiste
 no yo estaba tan mal
@@ -949,7 +949,7 @@ bueno
 la la me la van a cortar por por por crecimiento parecen del disco
 una yard en todo caso pues pero no nada nada no pasa nada
 yo quería vitro quisiera estar no y
-has visto me hizo una la diferencia entre el más estudias de los el protesta todo pero entretenimiento son básicamente sí totalmente 
+has visto me hizo una la diferencia entre el más estudias de los el protesta todo pero entretenimiento son básicamente sí totalmente
 ya
 se el volar ándale ya cuatro años y que otros
 soy que fue al aquí campamento fue
@@ -957,10 +957,10 @@ un campamento de el texto submarina va la semana no no es de éstas es incorrect
 de verás
 de
 lindo
-bien  pero por ejemplo hay no no sé cuál registro todavía
+bien pero por ejemplo hay no no sé cuál registro todavía
 no te puedo creer
 pero lo me peleo no no tenemos los pantalones que le dejaste a arreglar la mexicana no ah no corto el pasto nunca
-no lava la ropa y hablábamos la situación 
+no lava la ropa y hablábamos la situación
 y mira cómo estás
 me la lo que está bien también en que me llamen con que no dice nada
 pagar para lo hablo a buscar su carta
@@ -970,7 +970,7 @@ bueno lo que pasa es que salen con la la situación de la el para ver con para m
 por qué
 porque la con ese privatizaron si vos querés tener un
 que no me parece que usted del temas que esta empresa dependo pero por el viejo de uno tiene una relaciones con este gobierno
-ah 
+ah
 entonces no puede hacer nada digo eso es lo que le entendí
 un
 así que bueno sí es verdad que estoy destruir directamente no quiero ni saber lo que tengo que hacer no entonces
@@ -994,7 +994,7 @@ es un tramite que va por separado y no se les da viste a ellos hasta que se que 
 oh ya
 o sea que se enteraron cuando pidieron el empareje la de hipoteca de tan varias como totalmente trust yo no sé qué pasa entre ellos apelaron entiendes
 entonces ahora está no te donde
- que
+que
 y entonces yo tengo que ir con él a quejar mi ante la jueza y decirle mire usted hasta que se quiere que yo me que la men estúpida
 eso entendí porque te que te quiere decir eso
 quiere decir que que que que yo no digamos que esto empezando a mi me del noventa y dos
@@ -1024,12 +1024,12 @@ sí o sea de todas maneras sí vale la pena llevarse las cosas porque haya un eq
 un televisor vale plata si me entiendes
 toca hacer todos cuentas
 yo ya las hice cortos y sale mucho mejor sale mucho más barato de todas
-pero quince por ciento de y de la 
+pero quince por ciento de y de la
 del valor de la mesa del valor de la mercancía yo
 original
 no ellos tienen vaye si tu tienes la factura pues mejor pero si no ellos tienen haya una lista donde dice un televisor nichos mitsubishi vale
 cien dólares un equipo de sonido vale trescientos dólares ellos ya tienen estándar izada la lista los de la roban
-ah  ah y usted de standard bueno
+ah ah y usted de standard bueno
 sí ellos no claro porque no no pueden poner televisor a color del años cincuenta
 claro claro bueno perfecto
 pues ellos ya tienen están revisado por marcas
@@ -1070,7 +1070,7 @@ de qué
 de lo que sea mi amor si me sale machismo mismo ayer o lo que sea los sí
 como si va a tener tres
 pues y porque porque qué hacemos
-no 
+no
 toca me toca sí se quiere hacer todo sí se suponte que toque entregar apartamento
 
 y que y que si no consiguen a nadie
@@ -1125,7 +1125,7 @@ pues me voy a
 y todo eso lo estás haciendo un bus o cómo
 si en bus en bus y música me y un día me manera de ayudar pero no me pudo llevar y trato de me puesto el carro un días y para reportar pero esto que el carro en taller
 esto y de plata de plata cómo extraño corta
- y un poquito de todo ah bajito  bajito pero todavía tengo unos centavos
+y un poquito de todo ah bajito bajito pero todavía tengo unos centavos
 porque o okay cuánto te han con los exámenes
 por los panameños estaba ya me ha costado más de cien mil pesos como ciento cincuenta mil pesos exámenes ya
 claro
@@ -1139,7 +1139,7 @@ sí pero pues se fueron ya ya se fueron
 um
 ya se fue
 sí
-y no  pues casi nada más
+y no pues casi nada más
 sí yo también
 y se sienten muy solita o es bien
 no pues que no trabajar en su y con y una unas empanadas bueno no pues aquí nada mi amor haciendo nada
@@ -1196,9 +1196,9 @@ hablados
 pero yo no él no
 sí
 no no tenía nada que hacer todo sí las atracciones eramos yo y las otras cosas entonces nos oposición
- entonces se fueron de corriendo
+entonces se fueron de corriendo
 este
- y entonces pero cuénteme una
+y entonces pero cuénteme una
 bueno eh viene es
 cómo te jenny cómo le contrato ésta muy gorda
 no no ella no estás gorda
@@ -1208,7 +1208,7 @@ y no tra corriendo con ellas
 no yo la ah yo le digo que
 y la compañía mentalmente
 que si ella subo mucho yo trabajo
- este ay yo creo que sigo que traen llamando que sea para un experimento y entonces tengo cosas van a recorrer el mundo entero
+este ay yo creo que sigo que traen llamando que sea para un experimento y entonces tengo cosas van a recorrer el mundo entero
 en no con esa vos se aguantan haciendo fósforo
 sé ahorita compro yo un programa entonces que tiene amigos
 no porque eso lo utilizo como recurso eso es una a un insumo
@@ -1226,7 +1226,7 @@ y cuánto tiempo te pero tu te imaginas que entonces mi voz salga de que en una
 no
 en una grabación horno
 tu vas a que bueno si tu haces por morboso en una por no pero si tu lo haces serio no va a salir en
- ay que lo que sí
+ay que lo que sí
 no va salir en en
 mira cuando tu vienes querido
 yo ah eso yo creo que me han el favor de llamar a salvar al seis ocho dos
@@ -1321,8 +1321,8 @@ las computadoras azules
 tu trabajas en computadoras
 y el cielo dorado eh ya tu sabes eh
 ay pero trae muchas fotos rápido mi amor mi vida mi correo
-ellos traje cámaras 
-y qué te 
+ellos traje cámaras
+y qué te
 no
 tienes sino
 no es que yo no quería ha
@@ -1381,20 +1381,20 @@ oh yo estoy ya yo tengo nieve el otro y
 ajá
 eran como las doce
 ajá
-y entonces me es sí digo yo que fue  sí  la tumbas y mis niños tu son de la noche que muy tra toma ni que voz entras tu
-ah   por favor a
+y entonces me es sí digo yo que fue sí la tumbas y mis niños tu son de la noche que muy tra toma ni que voz entras tu
+ah por favor a
 ella
- qué a qué le pregunté  a canadá sí nada
+qué a qué le pregunté a canadá sí nada
 ah
-  estoy viendo que yo le dije yo creo que ella está viviendo aquí cerca del volcánico con una amiga que tiene una casa de west 
+estoy viendo que yo le dije yo creo que ella está viviendo aquí cerca del volcánico con una amiga que tiene una casa de west
 cómo es no es
- porque al principio estaba viviendo en una casa de wester cerca de del puta nicole una amiga de ella que tiene en casa de wester que se llama
-yo lo sabía verdad lo yo dije pero yo le dije yo creo que he estado en en una empresa de huestes cerca del bottalico hay 
+porque al principio estaba viviendo en una casa de wester cerca de del puta nicole una amiga de ella que tiene en casa de wester que se llama
+yo lo sabía verdad lo yo dije pero yo le dije yo creo que he estado en en una empresa de huestes cerca del bottalico hay
 ah
- yo  también bien no está bien americana
+yo también bien no está bien americana
 ay dios
-porque yo no creo que ella está viviendo en buen ejercicio  sí por favor no veo por favor
- ella me producto
+porque yo no creo que ella está viviendo en buen ejercicio sí por favor no veo por favor
+ella me producto
 ajá
 por la sensilla razón que habían treinta y cinco personas adelante hijo
 ajá
@@ -1495,7 +1495,7 @@ sí
 viene cada
 ahorita que
 sí hombre ver si hablo con él es que esta gente ay carajo entonces ésta no
-necesitas  ah y los pies se trataba de verás
+necesitas ah y los pies se trataba de verás
 tiene
 que el este fue de ver el últimamente análisis que le es que le hicieron
 sí
@@ -1526,8 +1526,8 @@ sí mm
 que le veo porque tomas a ver se hable yo con una persona anciana para que de lechuga y le mando pero el lunes este dinero que me regresaron porque se me han hecho con el rápido para compuesto
 sí
 se me hizo la comida mal y yo le hechas la culpa de que eran cien dólares y me lo regresaron pues solo cuatro se lo mando a mi jefa si pues tu aquí plancha televisor todo jefa
-ah qué bueno  te para que van a llena la manden la conversación no los siendo
-no le hace sifra  se le hace todo de todo esta grabación es para la la compañía de teléfonos
+ah qué bueno te para que van a llena la manden la conversación no los siendo
+no le hace sifra se le hace todo de todo esta grabación es para la la compañía de teléfonos
 oh
 parece un estudio entonces dijeron que son quince minutos gratis y bueno pues me los ahorro esta vez
 ah sí mm
@@ -1600,7 +1600,7 @@ no pero si me puse la corriente ahora en la okey
 así no todos de todos modos de todos modos no había tanto casa no sacrifique su dinero
 más que dijeron que ya no me iban a volver a prestar cos que vayan al digamos
 pues ya no les pagué
-wow  qué
+wow qué
 eh no sé le dijeron o sea del dueño pero quién sabe pues de todos modos tomó me ya no pronto no países o para de poquito como pueda
 no voy a pagar
 iba pa que lo mismo que de la unión este parte de a poquito pero no no dos abonos que son cien dólares y eso no no manteles de una monito una
@@ -1620,15 +1620,15 @@ ah no pues yo le dije ay ir conmigo no hay problema like the osea que yo estoy e
 andele jefa cuidarse mucho se todos yo lo que no tanto no se merino zona de su carro se echa no dije
 um um no sí no no me he de sacar el lunes
 eh no
-para que nos están estudiando hablo hablo todo bien hay 
-no no te  boluda y habla natural no te tarada bueno con
+para que nos están estudiando hablo hablo todo bien hay
+no no te boluda y habla natural no te tarada bueno con
 las razas se
 contó que se va que que no va a quedar un poco tiempo escuchame el les como cómo anda todo me perdí con mi novio vaya
 cuándo cuál con el con el licor aparato
 eso y sí
 y el perejil hasta pretendientes insiste
 y derrepente te dice y y lo que pasa que me que me iba ir el viernes a un lugar que yo no iba a ir porque sí iba tenía que ir con mi novio entonces quedaba mezclado
-sí 
+sí
 pero no no no hay ninguno que me que me entonces me
 hay hay ninguno mitad
 no no por ahora no pero
@@ -1652,8 +1652,8 @@ eh
 de dónde lo sacás
 de uno que se va que lo con lo comprar teníamos contraro
 eh qué bien
-es pero no no hace bueno con  encontré chismes
-sí  no tengo mucho para contarte de chismes pensar
+es pero no no hace bueno con encontré chismes
+sí no tengo mucho para contarte de chismes pensar
 me extrañé me extraña sí me francia
 de que ella sí más vale un montón no entendí ni te imaginas no pero tu ves que hablara de qué estoy laborando todo el tiempo
 te fuiste a ver a lalalalala pagos se iba a decir a tirar vive
@@ -1669,10 +1669,10 @@ no está saliendo mucho
 no más bien nada no no somos nada estamos cerca en casita
 empieza el tiempo lindo
 empiezo más o menos sí el otro día fuimos al nos lejos de una colaborar cupones florencia y nos ayudaron
-ah 
- así que después se desciende estaba re canchera va a mandar
+ah
+así que después se desciende estaba re canchera va a mandar
 lo ah
- es que y bueno no sé capaz que vos ahora voy a llamar no sé si ha ido
+es que y bueno no sé capaz que vos ahora voy a llamar no sé si ha ido
 y para el para el compra de o te van a sacar
 no sé todavía por ellos le digo y alcanza sí no sé
 um
@@ -1688,12 +1688,12 @@ vuelve vuelve herm el martes a se de la manera así que que hacen un golpecito d
 y con él todo bien
 pero sí bárbaro
 del al alguna noticias
-sean o rainha para traer 
+sean o rainha para traer
 no sabe nada para traer me voy a preguntar algo te cortar
 corretaje deseo
 cómo te va
- un poco porque él raeggaetton telefona esos escritorio
- un poco porque él raeggaetton telefona esos escritorio
+un poco porque él raeggaetton telefona esos escritorio
+un poco porque él raeggaetton telefona esos escritorio
 me personal me perdón escribir o no
 estoy ahora conectando el modem
 ajá bien
@@ -1704,12 +1704,12 @@ varbaro
 yeah para mensajes que queremos
 mensajes que vi que le mando está marcos son más que cuesta sucede espera ver un poco más de tiempo
 es que a veces le mando le mando tres por vía lo que pasa
-cada tres por días 
+cada tres por días
 lo que pasa es que a veces estoy tres minutos libre le escribo algo me toque que una clase no es que todos iguales
 cuando tenés varias york
- y
+y
 qué
-que  no se van a ir juntos
+que no se van a ir juntos
 sí no no sé si no que juntos o no
 yo tengo
 porque él
@@ -1761,20 +1761,20 @@ ojo
 eh
 un mes en roatán
 no pero yo sé no sé igual no sé capaz que he dos días tía hasta diciembre y estás de julio más que se ríe right
-yo 
+yo
 este
 así que
 no tenemos que ver tenemos que ver las fechas yo tengo la semana que viene una reunión ni me me de donde uno de los temas pollo hablar es de tomarme vacaciones antes de de mi incorporación voy a ver si me puedo incorporar en en enero cosa que no creo que me me den pero
 um
 eh centro llamás me parece difícil que me que trece los análisis químicos me sacaron sangre
 voy pobrecito
- es la historia pues
- es la historia pues
+es la historia pues
+es la historia pues
 que cuesta una cosa y el no sabes porque porque yo no yo no empieze ni voy a empezar a averiguar precio ni nada hasta no saber concreto porque
 el tiempo no sobra cada como para viste averiguar
-humo tanto  se se a quince oficializó liberal eficiencia 
+humo tanto se se a quince oficializó liberal eficiencia
 unos entre
- nada bueno y bueno hace falta tanto averiguar nosotros vecinos una semana antes o
+nada bueno y bueno hace falta tanto averiguar nosotros vecinos una semana antes o
 no está bien
 no pero yo yo igual mucho
 no no mira que a mi sacar la sacar un pasaje con una semana o dos de anticipación puede ser la mitad de precio eh hasta cambia
@@ -1791,7 +1791,7 @@ pero fue aló cómo pa depart conocía te juro aparece china porque es la primer
 y a mi
 fue rento
 y para mi fue lo quisiera porque yo llamaba y estaba practicamente segura que te iba a esa lo mensaje porque me ni se me ocurrió que podías llegar a estar pero me agarró ganas de llamarte y dije bueno que sea
-pero no hay pues mira hasta el  no sé a la marina porque tu conozca nos iba a ir después se me ocurrió por por él por mostrarle llamás comida de las máquinas que vengan a casa que al final ni se la mostré ni nada
+pero no hay pues mira hasta el no sé a la marina porque tu conozca nos iba a ir después se me ocurrió por por él por mostrarle llamás comida de las máquinas que vengan a casa que al final ni se la mostré ni nada
 y no sé si no me tengo que llames que toco seas deportes eléctricos las tres imaginar a la vez y te mosquera re natural que vengas
 y a los cinco horas amaste fue viste como para brujas
 se quedaron contentas bueno
@@ -1843,7 +1843,7 @@ bueno pero pero
 hay que pasar por
 pero esta bien pues la ahora ha llevado me voy así es
 um hay que empezar por oye eh y bueno hay ojalá que te que te di un buen tiempo o vez estaba un poco no me dijo después músicos
- no sé tengo que mis alternancia pues de de lo que probar de que cosas posi que no puedo hacer
+no sé tengo que mis alternancia pues de de lo que probar de que cosas posi que no puedo hacer
 ya
 cuál supo ganar cuántos qué se yo no es cierto
 claro
@@ -1878,7 +1878,7 @@ claro claro
 tiene por parte
 ya
 así que bueno eso la oeste hoy día ya el auto de su entonc hago salto nacido tuve vida me kane
-sí 
+sí
 a costar no sé cuanto pero caro pero
 a lo mejor sale más barato venderlo muchos
 eh ya sé si lo tengo pensado precios tengo depende algo plata o comprar el otro
@@ -1895,8 +1895,8 @@ y eso es lo malo a pagar o es un tuyo tengo peso te cuenta
 ya el esté
 pero bueno va a ser descontado de lo que él me me me me paga a mi
 claro
-te que ya no tengo un pues todo el resto me  pero
-ah sí 
+te que ya no tengo un pues todo el resto me pero
+ah sí
 pero por lo vez no
 un
 called a la vez
@@ -2021,16 +2021,16 @@ oh oh fue a fuerza salsa grado fabricio a buscarlo
 sí he estado estás a vivir
 oh oh pero por donde lejos o
 la por la casa la casa no son más o menos
-y ah 
+y ah
 más o menos que sabes que nos hemos mudado verdad
 sí sí pues sopa me contó todas las había venido
 viste pero sí pero después se tarda ir a buscar valla a
 oh yeah <unk> pero todo está bien ahorita
 sí la familia como está
 pues estamos bien todos vencedor ni los demás grandes yendo a la escuela y todo eso
-ah vos que para no te reconosca  eh
+ah vos que para no te reconosca eh
 la verdad
-sí ah  hasta
+sí ah hasta
 tu también está bien distinta ah
 ya han imagino pues me imagino todo cambia y
 pues todo todo cambia cerquita del tenemos muchos
@@ -2042,12 +2042,12 @@ mm
 no importa los o que se mover a a puede haber ahora porque porque tipo de problemas porque posterio con popa y como
 ah ellos le siempre siempre se sale el
 ah
-en el apoyo sorpresas  apoyo en ese aspecto del así pero
+en el apoyo sorpresas apoyo en ese aspecto del así pero
 pero en que ha pero por ejemplo qué qué lo que te dicen que que hagas y tu no quieres hacer
-ay  no sé a la vez por donde donde las mañana digo viene tu crédito que me conoces ti cuando quieres que y cómo estás bien hispánico sino que nos mucho mucho nikolay que ir
+ay no sé a la vez por donde donde las mañana digo viene tu crédito que me conoces ti cuando quieres que y cómo estás bien hispánico sino que nos mucho mucho nikolay que ir
 todo es para ti les digo una y yo le explico no que tengo tuvieron y las cosas que no que y
 pero cuánto tiempo das a la iglesia pues
-y  ya cuando  actividades alicia a bien todas las semanas pero cuando cuando no bueno hay días que se dan tu sabes institutos estudiar la habla el día de actividades que hay son dos tres veces nos une no miro también
+y ya cuando actividades alicia a bien todas las semanas pero cuando cuando no bueno hay días que se dan tu sabes institutos estudiar la habla el día de actividades que hay son dos tres veces nos une no miro también
 dos tres veces a la semana
 verdad
 aparte del domingo
@@ -2059,7 +2059,7 @@ y punto
 oh estás vendo instituto entonces
 sí sí sí sí
 oye otra cosa que te iba a decir ah pues más momento personas bastante preocupados por lo que sucedió con tu novio que yo no sé cómo estás tomando eso
-oh  ya te contaron pintar
+oh ya te contaron pintar
 ah pues
 dime
 ah la otra vez cae que hablen más o menos me dijo perdón no te veo decir todo eso la carta también me entien
@@ -2091,13 +2091,13 @@ sí
 sí
 sí sí
 oh yeah
- pero sabes
+pero sabes
 pues es muy duro del ser humano
 oh sí
 pero mira es que las cosas tu la tienes que que tomara o sea tomar como como tres vez elevarse luces era ser un poco fríos en cierta forma cuando hay problemas así
 y pero este
 porque realmente los sentimientos cómo
- pero sí extensin bueno y muy muy sentimental creo ya para
+pero sí extensin bueno y muy muy sentimental creo ya para
 ya lo creo pues todos somos así realmente sus
 ah pero te dejan sinceramente yo al principio estaba bien bien mal
 ya lo creo eso eso lo
@@ -2132,13 +2132,13 @@ hace cuánto tiempo ha pasado eso pues
 hace tres meses
 oh hace poquito
 wow
- hace tres meses no vas
+hace tres meses no vas
 ya ajá
 ah bueno todos todavía ustedes está pasando por un momento bien duro me entiendes
 y
 pero sabes kerbala ah que hay que tratar de que supe de ese sector de y lo que tienes que hacer es más bien tratar de superarse y sobre todo establecerse tal vez buscar un trabajo que te yo sé que es bien difícil en el pero me entiendes ahora
 ah
- bien bien bien
+bien bien bien
 yo sé pero como te digo toda la cosa es que sería bueno que ya sea con los hermanos o dos debe haber algún contacto por de que tal vez te puedo ayudar a conseguir un trabajo en lo que sea veinte por
 pues como te digo y se hace como tuve que la gente tiene que tenemos
 ajá
@@ -2208,14 +2208,14 @@ y y tiene le mando la carta mi mi
 oye salir sin temor esperate un política
 ya
 venía la cocina prendida con el con el
-ah ya  ya
+ah ya ya
 con el latente oeste a de llamaron hoy fíjate que de donde mandaste a hacer la la la en virginia
 sin sin y que dijeron
 que no han ido a buscar y que y un genéticos todo
 ya
 pero eso voy viajado mañana le voy a decir a la verónica que me busque el teléfono para llamar a él no sé quién diablos pero alguien tiene que llamar
 eh mis mire qué más seguros no seguro que llame a la bomba
- sí a la bomba
+sí a la bomba
 a la bomba sí donde manuel
 hay ya
 y que pero es que no están bien es tan bolas trivial y que es urgente que que
@@ -2248,9 +2248,9 @@ y además eh son todos artificio qué los lagos no son verdad y
 ya ah
 eh fuimos los primeros días fuimos a un una cosa para juegos para niños con la sufrir
 ya ya
-pensé que eh más noventa tuyo pablo y yo porque  hay juegos de rafael irme y cosa así pero suspendiendo precioso
+pensé que eh más noventa tuyo pablo y yo porque hay juegos de rafael irme y cosa así pero suspendiendo precioso
 bueno hoy y cuéntame y cómo las comidas como te la arreglado en las comidas
-sí cosas táctica 
+sí cosas táctica
 ya
 tengo ahora con moleste que había congelados
 ya ya
@@ -2274,7 +2274,7 @@ así que
 bueno ya del caso o no
 no yo igual yo no encuentro él lo lo
 sí mucha la ley
- estoy igual no no sé no sé porque no no he pesaba cade más que acá cuando me fui la primera vez hay dios mío que horror y son libre la es diferente es como el doble de lo que uno pesa
+estoy igual no no sé no sé porque no no he pesaba cade más que acá cuando me fui la primera vez hay dios mío que horror y son libre la es diferente es como el doble de lo que uno pesa
 ya
 por ejemplo si yo cosas santa quitó aquí presos ciento sesenta eh ciento veinte vida una cosa sí
 ya
@@ -2282,7 +2282,7 @@ personas sería la préstamo cien quiero ya estaba imaginando ves cosas para asi
 ya no pero trata de casa hace ejercicio
 sí si como como
 para que te vea y pues niñita
-nada 
+nada
 oye y qué amigos te ha hecho allá
 a no pues se kidman y si yo salgo a la calle afuera
 ya
@@ -2340,7 +2340,7 @@ sí así sí otro mundo eh
 ya
 increíbles
 ya
-y la universidad pero yo también me  um
+y la universidad pero yo también me um
 ya
 y el otro y eso más supermercado y super grandes yo supe que la cia va y se y fíjese pien rebuscar asociaba y dice ella se va a los buses y que esto
 y de repente yo miro porque justo en ese momento estamos conversando de que yo me iba a quedar ahí y después pablo me iba a ir a buscar
@@ -2355,7 +2355,7 @@ y que cuando le dan la mano vive conmigo no no le conviene no pero
 ya
 es super mala ahora la
 bueno y él toca la guitarra o no
-no tan no  tanto calor es que
+no tan no tanto calor es que
 viste si yo te dije yo
 lo que pasa es que no lo que pasa es que no sé usted cree que no lo voy a hacer sí lo voy a hacer que que pasa es que primero quiero estudiar inglés porque estaba estudiando de los libros que me me traje
 ya y ya
@@ -2363,7 +2363,7 @@ y que estudiar inglés y después vez no medicaid la guitarra porque
 ya
 las dos cose mi cabeza no da para tanto y que
 no así qué bueno que no te metas en tantas cosas terminar una cosa también bien terminar
-sí no eso no idea  si total
+sí no eso no idea si total
 claro no
 y hasta que después voy a estar como más fácil en el inglés entonces voy a estar como más relajada
 ya
@@ -2375,8 +2375,8 @@ en tres partidos nueve puntos eh
 del tu conoces
 sí sí sí pero es un
 pues esto es aburrido
-por qué no nada nada nada por lo menos dos en la capital hablamos en términos de san vicente si no no entienden  hablamos en términos de san vicente eso depe entonces si no los
-no te sí no no te  no sí sí que salgan estudio de que usted cosas después digo
+por qué no nada nada nada por lo menos dos en la capital hablamos en términos de san vicente si no no entienden hablamos en términos de san vicente eso depe entonces si no los
+no te sí no no te no sí sí que salgan estudio de que usted cosas después digo
 o sea que el hombre aburrido no
 si porque tengo porque ocupado aquí a parte de la salsa y esa es muy peligroso salir solo a la calle nosotros porque que matan gente
 por qué sí
@@ -2398,15 +2398,15 @@ sí
 entiende las clases de ocho a nueve cuarenta
 sí
 y era de documentos es el único es que tengo habitación a a unas de las octubre empiezo el trabajo trabajo de veo las dos de los a tres como
-a las tres meses o las otra vez que acabo a cinco ya a las cinco diez vengo aquí y estudio a las siete voy así y a veces pues la piscina algo  pero es aburrido
-sí 
+a las tres meses o las otra vez que acabo a cinco ya a las cinco diez vengo aquí y estudio a las siete voy así y a veces pues la piscina algo pero es aburrido
+sí
 no es que no hay nada y sino que no tengo intensamente una no su punto en un lado
 y con los cuando tienen mentir metido en los que han sí
 que que pusieron a estaba que mejor me llevo tiene treinta
 y treinta años
 y cinco mil cinco
 ohh
-el el otro tiene veintisiete hay un catalán que tiene veintiocho 
+el el otro tiene veintisiete hay un catalán que tiene veintiocho
 jovah entonces
 entonces es que no hay nadie en la vida de españa en españa eso
 ya y todo pues aquí de ostre bueno es que grande muchas cosas es que una carta un grande north eso es
@@ -2415,7 +2415,7 @@ sí
 un acaricia
 es que el satélite no nadie te lo otro convencen la en la zacatecas estuve hablando este bueno yo yo tuve una carta orlando con marta en esa estados no el anterior
 un
-el reforzó anterior uno no comparto por todo eso que me dijiste tu te te los detalles con la cartera  un rollo yo lo que sé es que cuando vengas estar con ella
+el reforzó anterior uno no comparto por todo eso que me dijiste tu te te los detalles con la cartera un rollo yo lo que sé es que cuando vengas estar con ella
 sí sí ajá sí
 que cuando vengas superestrella lo que tiene ganas es hablar contigo ya cuando vengas locales noviazgo con este en contacto un día y ponerte con ella y hablar y esas cosas porque yo
 bah
@@ -2431,8 +2431,8 @@ eh y sí diversidad ah pues no sé cuántos no
 mandé la postal le mando la postal y cuatro cartas
 sí la postal hace porque sus son del tema
 sí la postal también porque me dice no su carta que la postal por semana la postal y cuatro capaz
-sí cuatro caray 
-en españa site a ti cuatro tres a tres cuatro a cinco  muchísimo lo pues
+sí cuatro caray
+en españa site a ti cuatro tres a tres cuatro a cinco muchísimo lo pues
 por a vivían dos un momento
 las verdad
 la postal y dos
@@ -2444,28 +2444,28 @@ ahora lo que pienso volver españa para comer bien
 todo para comer el otro día que tanto la carta joz mira viste que llegar y yo porque cerca de treinta vivís en toda la noche
 pero básicamente porque estamos los dos bueno yo por ahí mismo entras a volver para para para tenemos unas copas tus vivienda por millas de filadelfia el que no tenía ni idea de tener el poder es igual es tuyo tas pringamosa cerca de esta gente en toda la noche
 que me
-se le pegue  pero fume el centro de cigarrillos racista empezamos con eso
+se le pegue pero fume el centro de cigarrillos racista empezamos con eso
 sí y bueno salsa qué toda la cerveza que se ve de todo entonces después pero toda eh
 sí ya ya es un sistema en todo todo toda
 tengo una camioneta en con veinticuatro
 ajá
 hombre no luego también tienen o sea que la que más
-sí a ver pues cuando ya salió sorprendido asique te mando una caja estrella si estás deben de los  te una caja de estrellita 
- no
+sí a ver pues cuando ya salió sorprendido asique te mando una caja estrella si estás deben de los te una caja de estrellita
+no
 eh sí muy bien sí
 yo bien parece que funciona esto
-y como en todo bien y mm lo este este este fin de semana temeroso fin de semana que para este fin de semana nos yo creo que es el que todos se como  como ser este que hago como rosado euro la
+y como en todo bien y mm lo este este este fin de semana temeroso fin de semana que para este fin de semana nos yo creo que es el que todos se como como ser este que hago como rosado euro la
 todo va por
-eso es bueno venezol el fin de semana que tuve que hablar como éste que tardes la leche encontrarla entonces tuve que aguantar internas  hasta que la encontré luego ya ya todos estaban en otra onda y ya no
+eso es bueno venezol el fin de semana que tuve que hablar como éste que tardes la leche encontrarla entonces tuve que aguantar internas hasta que la encontré luego ya ya todos estaban en otra onda y ya no
 sí ya ya de quedaste pero
-sí ya me que me pasó nada pero eso  es la única bueno de pero como los o doscientos tenemos venimos de los otros o igual a seguras
- claro y suerte
+sí ya me que me pasó nada pero eso es la única bueno de pero como los o doscientos tenemos venimos de los otros o igual a seguras
+claro y suerte
 todas pero te te mucho menos
 tu dices
 eh
 pero de mi madre
 de no te chamacos tanta nicamente trate añitos
- no me dio
+no me dio
 no te sí todavía
 no me no no sí es una dos de teresa eh una de juan y nada más
 yo le dije cuatro
@@ -2484,11 +2484,11 @@ tres tuyas más
 se parece cuántos siglos no entonces dos
 dos y uno con mucho tan <unk> que raro
 sí pero no hablan de las cartas que tenemos poco tiempo las cartas te dan
-verdad sí  y qué vas a ver qué más te cuento por aquí que en el común en cuestión del todavía pero vamos vemos
+verdad sí y qué vas a ver qué más te cuento por aquí que en el común en cuestión del todavía pero vamos vemos
 ah eso es esto no te preocupes me fu bastante yo recibo el último día me dijeron vamos a dar una vuelta que el último día no se estudia en la calles
-que si  depende éste sí es que
+que si depende éste sí es que
 por supuesto eso eso yo tenía pensado todo el tiempo que me dicen que que dar una vuelta
-sí sí sí  miré tu resultado una historia puertones los y
+sí sí sí miré tu resultado una historia puertones los y
 sí
 y es verdad te mandan recuerdos los de eso sería de de mi hermano televisión de ser a propósito la carta tengo un
 ahora no voy
@@ -2507,12 +2507,12 @@ sí bueno es que ella es hablastes concentrarse y un día tranquilo los billes p
 y coge y no me yo lo miro frente y vo entiendes
 
 sí yo me clave muchísimo muchísimo y luego ya me decían que no que no me oscuro y meter juro que no que no me vuelvo finalmente
-y 
+y
 no ya y has como anonadada como hasta ahora mismo situación por vida en la tía nada um no sale dominicana no quiere comunicar ahora bien hablamos nos llamamos y
 y la otra con un poco
- la otra corto es la otra
+la otra corto es la otra
 ya pero yo lo de la mús
- qué que la otra cosa tobón con y me vino la mejor amiga mía hora comenta intentar convencerme que intentara salir con la otra cosa con tres la mejor amiga ella un
+qué que la otra cosa tobón con y me vino la mejor amiga mía hora comenta intentar convencerme que intentara salir con la otra cosa con tres la mejor amiga ella un
 a vamos es
 sí entonces que hay mucho banco cerrado y están pagando los que pagan más pagan el veinte por ciento
 tanto yo ha por veinte por ciento como yeah
@@ -2570,7 +2570,7 @@ me mandan para este me mandan para este me mandan para este pero puede complacer
 exacto
 como somos tan oriente
 tuve
- lo no lo vamos a complacer pues
+lo no lo vamos a complacer pues
 mm
 y no puede nada porque al contrario aquel el viejo lo estaba rematar vuelto al bulicia con el hijo me lo dio más barato que
 y lo me eso de que se lo metí a la casa
@@ -2684,7 +2684,7 @@ mm es puede motores la marca de las de las tres pues o sea
 ajá son radio hechar dice y estas fuera más que yo traje de ella
 ah esos la realeza que
 radio la entre dice aquí mire el nombre exacto ay que ir a ele hi jenny
-regresé  los
+regresé los
 haló
 halo estoy yo
 ajá
@@ -2734,7 +2734,7 @@ ven eh ah okay
 ajá son maltrata y traen puros ganchos primero amarra y arriba traiga hecha para sostener
 lo vacaciones de usted sabe como cambian somos ver no pero yo homero es la misma ajá ah
 pero es que vota por mi puerta de policía porque varios policías me pararon por ahí para prontamente a compras otro de
- okay
+okay
 sí son las amigas que le corrigen la la fac
 bueno yo yo soy de tomate no le consigo negra
 no si es bien grande no si son veían bueno tiene para el colegio
@@ -2753,7 +2753,7 @@ este alfredo cubre hablé con él
 ah sí me me escribió ves todavía por
 ha y y
 por la computadora es medio provado con usted que se va a mudar
- les con el que la gorda que la gorda mide
+les con el que la gorda que la gorda mide
 de todo completo
 que lamy gorda tiene de medida
 ajá
@@ -2800,7 +2800,7 @@ uno pues y
 porque no sabíamos si este ya medio día te estudio y ya
 me fui como a las cuatro de la tarde
 ah y qué tal el trece
- bien tranquilo papas de los señores se casa
+bien tranquilo papas de los señores se casa
 no había mucho serios
 más o menos sí aut hay frío aquí
 ah
@@ -2814,7 +2814,7 @@ y me dijo ella que te mantener ajá
 y mejor verdad
 pues sí
 y te voy a poner a acabe porque skilling que te quiere hablar dice
- ah bueno y de pensar un respecto
+ah bueno y de pensar un respecto
 que ahorita vaya con el teléfono
 hola
 la verdad yo ah
@@ -2828,7 +2828,7 @@ pues sí ay y qué tal todo por allí por la casa todo bien
 si hola
 a lo mejor te va a poner que
 si te puro ah pues qué tal cómo estás
-oh  bien y no
+oh bien y no
 bien y vos qué tal de tu novelas
 y qué se minutitos los parecía chico bueno ya se me quito
 pero por que te estado estabas mal o qué
@@ -2849,7 +2849,7 @@ ah
 mi papá dijo que te mario
 a mi a mi no
 es tan mentiroso mi papá
-ya va ha 
+ya va ha
 van si no
 que hablé hablar pero ni siquiera me llamo la semana que estuvo aquí nomás
 oh sabes um sabes a quién mataron ayer
@@ -2861,9 +2861,9 @@ ajá es que se dio con
 vino una banda es ladrones aquí a la coño ni se tratan con ésta con restriciones tito y le dieron entre ayer se murió hoy todo el día me estuve en el entierro y en el reloj
 ah y es andaba por por allí yo como uno nosotras
 bien salieron corriendo a los ladrones pues y los ladrones empezaron a disparar aquí en los colonos y todos estaban tiene ah
-y y  unos y dónde fue allá abajo o sea por la casa
+y y unos y dónde fue allá abajo o sea por la casa
 eh alquila sigue o estacionamos enfrente latinos dominan canchas con está
-en las casa y  y que pues que le dieron a él
+en las casa y y que pues que le dieron a él
 hay estaba porque los que iban a correr a los ladrones para raros
 ajá
 y los ladrones empezaron a disparar y todos se tiraron al piso y cuando se tiran piso ya tenían la malas adentro
@@ -2878,89 +2878,89 @@ sí
 baja el miércoles
 sí el el sistema venido para nada fijate
 vista ah
-y vos qué tal  sí en
- no como un loco señorita y con sus dos niñita vos fascinada estaría con esos dos niños y la señora es maestra de kindergarten también ah tenemos la gente que están un de de ah
-y ha decile que que una teléfonos y así son mentir en el y este ah  yo me gusta hacer
+y vos qué tal sí en
+no como un loco señorita y con sus dos niñita vos fascinada estaría con esos dos niños y la señora es maestra de kindergarten también ah tenemos la gente que están un de de ah
+y ha decile que que una teléfonos y así son mentir en el y este ah yo me gusta hacer
 y se quedó
 si me quedo frío
 o te claro muy espectáculos óptica allá y traernos la teresita le quiero la de ella
-no  todavía son verdad como 
+no todavía son verdad como
 ah está la que la ella la tienes
 te tu no
 o floja
-que sí qué 
+que sí qué
 ah y tu
 siempre que mires que mi cuenta me doy va
 y el calendario te gustó
- y lo tengo para vivir pared de de enero no tengas exagerada y
-  yo tengo uno de yo tengo el de antonio sea
-si hay qué vivía en las cartas que te mandé le puse y que dicen está dando que tiene uno pero ésta dice 
-ah sí pues que ni siquiera un ni siquiera se quitan de de mi el desgracia mucho más que le tocó latón 
+y lo tengo para vivir pared de de enero no tengas exagerada y
+yo tengo uno de yo tengo el de antonio sea
+si hay qué vivía en las cartas que te mandé le puse y que dicen está dando que tiene uno pero ésta dice
+ah sí pues que ni siquiera un ni siquiera se quitan de de mi el desgracia mucho más que le tocó latón
 ah la
 y él sigue con la con la cuna
 es qué vas a los estados unidos o
 la carta
 ya podía no y no hay amor y lo llaman el miércoles también
 mm pues mhm
-y ya no son no pero cuando no van a volver de 
+y ya no son no pero cuando no van a volver de
 ah producto hay no y llamaste ni voy a mauricio
- a mauricio
-ajá se te olvidó ay no hay eh 
+a mauricio
+ajá se te olvidó ay no hay eh
 
-oh  ay
- me acuerdo 
-wow   y dijo ay que yo te dije que lo que yo te hiciste a las seis
+oh ay
+me acuerdo
+wow y dijo ay que yo te dije que lo que yo te hiciste a las seis
 
 no ahorita el bebé no el veinte ah nunca
 veinte domingo pasado burra
 ah bueno el novios pasado fue fueron cualquiera pero ay
- es que digan datos la realidad de lo que me iban a quitar las nueve verte bien tarde
- a haye clave van hay la
-qué bueno ya no me haya qué las cartas  porque se me olvidó ah
+es que digan datos la realidad de lo que me iban a quitar las nueve verte bien tarde
+a haye clave van hay la
+qué bueno ya no me haya qué las cartas porque se me olvidó ah
 visitar pero es que me ha las cartas hasta el lunes van
- te vas a y cuando la eh ah yo no
+te vas a y cuando la eh ah yo no
 y llamaste juan carlos o también se te olvidó
 ah yo soy sino los corte
 ah ah
- me río es que no entendés que a miércoles me quitaron las novelas y y casi no podía hablar o sea sí podía hablar tomamos y a los cachetes porque tenía la cara casi puro pisco
+me río es que no entendés que a miércoles me quitaron las novelas y y casi no podía hablar o sea sí podía hablar tomamos y a los cachetes porque tenía la cara casi puro pisco
 tu le dices me pusieron morados y casi toda la tarde no la pasado también entonces no podía llamar a nadie si mi me podían años
 ah
 viste y como bien porteña
- oye y la carta de dije al final recibieron
-mamá tanto ni no verdad  a meter en y dos
-a la a mi sí 
-ay dios mío   y no   
- es que ahí mando las cartas unas fotos para impedir para paty para no sé si estoy hablando diciendo feliz cumpleaños
+oye y la carta de dije al final recibieron
+mamá tanto ni no verdad a meter en y dos
+a la a mi sí
+ay dios mío y no
+es que ahí mando las cartas unas fotos para impedir para paty para no sé si estoy hablando diciendo feliz cumpleaños
 y que para para qué para paty para no sé quien dice sí es que te lo juro que mussina manden hablando de qué tiempo cosas y mamá tampoco
 ajá
 y hay tienen cosas para el demanda hablen y tampoco se las ha ido a dejar
 niña aprendí a manejar y vos vas a los mandados
- ah no ah
+ah no ah
 ah por dios que ser allá le dije a mi papá que cualquier wawa mario mano que me sí este el carro
-qué va a partes para la  todos los días que nos  por día ahora hay un país grande es donde están construyendo hay por el periféricos por la ruta no le quitaron buenaventura
+qué va a partes para la todos los días que nos por día ahora hay un país grande es donde están construyendo hay por el periféricos por la ruta no le quitaron buenaventura
 dos uno el canto así por el poder trabajar ajá
 ah pues allí todo es para
 ah sí alá entonces a uno
 sí es país no daba de haya nada
 ya mira espérate amarte a juan carlos decirle que yo no saludos y que me escriba y la la mi dirección y ya mauricio qué te ata decirle que vos triste en un hospital toda la semana
-porque te pera  interpalestino para que el es el mensaje perfilan si es que me más me mandó una carta presten hospitales del ha vecindad hayan  entonces decile que no me 
-a la  está 
- entonces decile que que era persistencia tarde feliz compras pero yo te dije cremas pero como estás en hospital que no podías que hay uno que está la panameña no pero no se te olvida
+porque te pera interpalestino para que el es el mensaje perfilan si es que me más me mandó una carta presten hospitales del ha vecindad hayan entonces decile que no me
+a la está
+entonces decile que que era persistencia tarde feliz compras pero yo te dije cremas pero como estás en hospital que no podías que hay uno que está la panameña no pero no se te olvida
 no no se
-y qué tam niña que no sentimientos que ven a tres las cartas donde volví evening   y ya
+y qué tam niña que no sentimientos que ven a tres las cartas donde volví evening y ya
 y ya adulta que era
 donde alicia y mira te voy a dar una dirección porque esta even me conta porque como yo le le a veces se pone reciente la zona siete terrenos que tiene problemas con semanas porque como su mamá no no
-hace muy ahora se que que su una hermana no le da las cartas yo le mando tres me dio una dirección para quique que que se las de o que se lo manden no será una familia de 
-qué lindo la ley que se ponía de 
+hace muy ahora se que que su una hermana no le da las cartas yo le mando tres me dio una dirección para quique que que se las de o que se lo manden no será una familia de
+qué lindo la ley que se ponía de
 sí ya que este tema avenida dos sesenta
-ajá ah 
+ajá ah
 dos sesenta
 dos sesenta
 ajá volando diecinueve en la florida
 zona diecinueve
 y la florida y la gente atrás
 la florida y hay quieres que ay yo
-sí  no hombre
+sí no hombre
 ya a ser un cantito más porque hacen esa intenciones
 a la pucha y la niña ocupada y esa niña como tanto por
 sí aquí aquí este en la casa pues bien bien
@@ -2971,7 +2971,7 @@ ya bien sí ya todo pues en calma todo está tranquilo veres a dios verdad
 se esperar
 es que fíjese
 eh aquí tenemos treinta minutos va hablar de esta llamada entiende
-ah de verás no 
+ah de verás no
 claro porque no es están haciendo una investiguen están haciendo una investigación tu como se escucha la voy y eso entonces llamada gratis
 mja ajá sí bueno ajá para poder entrar tele a contar que están cómo se llama relegando de la casa verdad
 oh sí
@@ -3010,7 +3010,7 @@ pero también tantos mandarle a según sus separación treinta porque me hablaro
 ah
 en entonces eso vean ya energy llegando porque me dice ay eso es cosa más vale me dice porque hay que romper el piso de la cisterna raras ver adornado dónde está la la situación
 y así así era paraguaya de se se pasa algo la cisterna y romper toda la casa
-sí mira el gran también acá se ve lavando la cosa ya verdad yo de momento lo he dicho a la gente que como ya matías que no la llenen a ver si están haciendo caso que no me van a ya la casa abajo 
+sí mira el gran también acá se ve lavando la cosa ya verdad yo de momento lo he dicho a la gente que como ya matías que no la llenen a ver si están haciendo caso que no me van a ya la casa abajo
 sí porque se necesitaba vos
 pues y eso se lado y no solo la la la de nosotros sino que está puede pelear las de los vecinos verdad esa corriditas de agua y
 y eso es carísimo verdad pero
@@ -3028,7 +3028,7 @@ no solo para ellos denota para ni también no para mi loca para ellos también t
 claro www
 yeah es que a ver que tal y el clima cómo estás por ahí
 ya se está poniendo bastante frío ahora
-no  deberes y ahorita yo viendo  no no e
+no deberes y ahorita yo viendo no no e
 no no estoy de todo untipo y está bien bonito suegra
 ah vaya ajá
 de noche hace un frío de perros y de día aseguren bastante lindo
@@ -3049,10 +3049,10 @@ elizabeth
 ah ya se fue no se
 se fue y estamos se mudó con un negro vive un negro
 no existe en si protestas ay no bueno
-un negro que parece un un gorilas un quienva según solo 
+un negro que parece un un gorilas un quienva según solo
 de días buenos y ese es un gusto verdad
- porque eso era pero él pero un ratito
-que que puede hacer  ajá sí cómo no
+porque eso era pero él pero un ratito
+que que puede hacer ajá sí cómo no
 no no no dejarse desastres que llamen no más
 ajá mira puestos importar pero bueno sí ha estar tremendo claudio
 en cuanto a gustaba está escrito
@@ -3060,13 +3060,13 @@ ajá pues así y salió que dice
 ah se qué morir
 no se me se haber puesto mal verdad
 sí es que oigo a chile tan solo por papá tan por morir somos edades
-hay de eran no  soy el papá
+hay de eran no soy el papá
 ajá y y la mamá también ya yo también muy
 pues sí los dos están distrito ya verdad ay no sí de la miré que me cuenta me cuentas
 ahí se va oh ostin ayer
 ah de verás por haya andar
 pero traían cinco minutos ya que estoy hablando y tienes veinte para hablarle me están controlando los minutos
-  que llegar
+que llegar
 se fue con la antigua o te lleve parte y yeah y que ya pero qué notable esta mujer suegra ter
 mira que sí y qué tal ves al señor este
 bien buena gente suegra
@@ -3082,13 +3082,13 @@ ajá
 pero él dice vaya ideal leerles es que se queda en un hotel y él tiene su casa
 ajá ojalá
 eh no sí es porque es bien
- mala que de sea 
+mala que de sea
 sí no hacías hora porque desde que es bien cuidadoso serio es bien respetuoso
- ah
+ah
 siete querías llamando a a nosotros que ella nos llama nosotros para contarnos del estado en el hotel y que después nosotros le llamemos a él
 ajá
 a su casa para ver que no le tramo mintiendo dice que
- ay dios no sale el diablo todos de otro par diablo 
+ay dios no sale el diablo todos de otro par diablo
 eh pero es bien buena gente él el muchacho
 mm ajá vaya que en verdad ojalá verdad
 y yo no sí yo estoy bien contento con eso
@@ -3122,19 +3122,19 @@ no
 hola
 ajá ah ah
 de allende minuto deben veinte para hablar
-ah 
+ah
 que pasó mi tocarte oye hombre
 tercera
- que hablar yo este
- qué co
+que hablar yo este
+qué co
 a la puta yo te de
-que te pasa estaba 
+que te pasa estaba
 ya te estoy esperando y no él nunca viejo
-ah ok  
-la gran pistola carajo  y cuando te
+ah ok
+la gran pistola carajo y cuando te
 pero pero estamos estamos supuestamente está pasando los papeles que mandes porque los que nos llamen
 yeah
- por graba fuera hacer allá 
+por graba fuera hacer allá
 sí aquí ya tiene que venir vaya en todos no cuarto medio te va a salir los papeles verlos
 ya diez pero pero la bonito
 hoy esta noche manía estas batió pasa por algunos lugares
@@ -3162,7 +3162,7 @@ bueno sí sí porque tu sabes que los tres millones rentar toda la boca
 pero a los dientes no les
 ah no no
 ay ay mami y estoy en piscina fue
-y una piscina mami no mi 
+y una piscina mami no mi
 ah en la qué vaina y en la tercera o la tema pues
 y
 porque sí
@@ -3196,7 +3196,7 @@ ay mami yo qué
 se acaba de y ah es que ellos están construyendo ya en bogotá
 um
 sí porque ella se piensa ir a vivir allá
-ajá 
+ajá
 ay que hay hay como van las cosas haya en servía
 bien me imagino mis sí sí bien bien sí sí
 yeah bueno gracias a dios pues y total calle abajo
@@ -3257,7 +3257,7 @@ y se fue a trabajar a otra parte
 ah bueno ya se salió
 entonces éste y decía que no se la aguantaron
 exacto sí
- y la pela y la que tenía era la pelada que si vos te
+y la pela y la que tenía era la pelada que si vos te
 ay si pero no hacían ni mierda
 pero ya va un carajo y
 para un cara
@@ -3269,7 +3269,7 @@ pero cómo sí señora
 y total que bueno
 y cómo se cobraron el día que durmieron los visito yo decía quien
 no yo ellos durmieron aquí en mi cama yo mi arriba en el cuarto de san
-ah  y
+ah y
 sí porque tu sabes que yo incómodos y no puedo
 sí el de al lado de pasa la ca
 bueno que aprendí el aire arriba y nacida en mi arriba
@@ -3284,14 +3284,14 @@ sí um
 no tenés abanico nada claro ay hombre pasarme a odepa saludarlo pero sí que bueno talvez
 ay y ya te la paz bueno ya
 yo piola
-ohh  todo te era había
+ohh todo te era había
 oye mira tengo para
 se va de nuevo
 bien y tu cómo te va bien
 hacía aprovechando laya malita estas que nos han ah
 ay sí claro maginate pero y eso como es escribir yo como funciona
 pues es que ell tianjin está haciendo una
-mhm  pues  ah
+mhm pues ah
 unos experimentos entonces eh
 pero
 ah este este para para para para prueba ves
@@ -3305,8 +3305,8 @@ ah ya
 sí por es que se aprovecha
 y cómo has pasado
 ay bien oye gracias a dios no está haciendo frío todavía site nada
-ver estoy estás contenta 
-sí  tu sabes que aquí es más o menos en enero creo yo pero bueno todavía no ha entrado diciembre
+ver estoy estás contenta
+sí tu sabes que aquí es más o menos en enero creo yo pero bueno todavía no ha entrado diciembre
 sí
 pero es raro porque aquí en el noviembre ya se siente mijita congelar uno
 mm ah bueno pero el que está atrasado
@@ -3315,7 +3315,7 @@ que venga mañana con una señora con esta de ajá
 elisa sí que se va el diecisiete para allá y estarse tres semanas
 ajá
 haya la hija de alberto postales rubio
-ajá  mm
+ajá mm
 ella se va a estar unos días ya alberto luis la conoce
 pero la quería si tu quieres que la mande con ella tramando antes
 pero antes cómo
@@ -3343,9 +3343,9 @@ mm
 así es que me haría pena que ella no me da pena si ella no ofrece decirle nada
 decirle claro oye me y que
 pero ajá y que que
-ha  no bueno yo te la mando volver
+ha no bueno yo te la mando volver
 claro claro que han sabido de día
-de eh nada no hablamos de la con el daban vayan bien 
+de eh nada no hablamos de la con el daban vayan bien
 no ha no se han visto con rosario ni nada
 yo la llamé el otro día y ella me llamó el día que cumplir haya de casada
 ajá
@@ -3425,7 +3425,7 @@ sí sí porque que concho le que que seis meses solo que se conocen y que no sab
 nada que no éste con esos rollos no ajá
 conclusiones tontas no no eh yo le bueno que deshacer todo eso y qué piensa en el niños
 oye pero
-y ya está y que bueno que si no quiere que  bueno que no se casen que se pongan a vivir no y ya está eso nueve pos
+y ya está y que bueno que si no quiere que bueno que no se casen que se pongan a vivir no y ya está eso nueve pos
 sí si no pero ella no tiene que pensar en que si
 eh esas un conclusiones idiotas oye
 sí hombre
@@ -3450,7 +3450,7 @@ no amarilla mallas nos dijo que como o sea por que amaya le dijo que a ver qué 
 ah ya
 y yo le dijo que no que que había dejado de controlarte que usa siquiera sabía pero
 oh mira qué gracioso esto por qué no le interesa a su madre
-bueno pero eh  ya vuelo no lo que pasa que parece que fue que bueno que sea escuchado por hay que las pastillas anticonceptivos dan cansé no sé que
+bueno pero eh ya vuelo no lo que pasa que parece que fue que bueno que sea escuchado por hay que las pastillas anticonceptivos dan cansé no sé que
 ah pobrecita ya
 por ese rollo y ta
 ah ya ya ya
@@ -3582,7 +3582,7 @@ ah sí y y te refieres
 ay te cuento
 ah sí
 eh de ser vendedor
-ay y qué pasa  qué pensar
+ay y qué pasa qué pensar
 no me pasaron supervisor o de ventas
 ay qué emoción felicitaciones ah
 correos ahora ontario que estar mandando a los otros eso no me gusta
@@ -3590,9 +3590,9 @@ y llamadas no pero te va a ir bien que me alegró resistirá den
 crear comenta estaba contestando tu mami
 ajá ay qué música
 y ya que bueno que no se quiere que seguir adelante y todo lo que me dijo es lo que me gustó muy fue muy bonito no me re anoop reclamar
-tres personas que no me da a mi te los de ti 
-ah 
-los perros que no me da a mi ahorita te los de ti  ah que mantener
+tres personas que no me da a mi te los de ti
+ah
+los perros que no me da a mi ahorita te los de ti ah que mantener
 pero si no estoy platicando con ella es que él me mandaron como se llama el trabajo
 mm mm
 mandando a ver una persona sea si por una conferencia que tengo que dar haya en chimbotes
@@ -3606,45 +3606,45 @@ ah
 ahora sus decimos así en carro cuánto tiempo se hace no
 sí es que ajá
 ya panamá te cuento mañana me voy a las cinco y media seis de la mañana países
-a uno  a dónde te vende
+a uno a dónde te vende
 vienen salgo de viaje no te come temas venimos de vuelta que hoy como
 ah pero a aquí lugar vas
 mira mañana visito vivo hondo teculután zacapa simulada esquipulas
 ajá
 de de esquipulas regreso paso bolas en morales y estaba incluido dulce y porque bueno
-es de que tengan  
+es de que tengan
 ya veo haciendo de qué
 de en en zacapa venden un país que no es así pan sino que sabe cómo qué es así
 de llamadas
 no no no no pan sino que es ah
 sería
-parece más eso 
+parece más eso
 éste de arroz
 no hay de otra cosa
 esté a tu mamá la esposa
-ah y me contó de esa  pero 
+ah y me contó de esa pero
 sí sí sí por cierto me comentó que eso te fascinar a ti
 y me gusta
 para
 y que era con
 y tan hemos voy a procurar traer te que pasa que descompone
- sí
+sí
 ah no cuando voy de cuba ese yo estoy entrando ese ya te los estoy dando mírame queda caras como hiciste como
- viste ahora ya no quiero pollo campeona ah
-como todo ay sí 
+viste ahora ya no quiero pollo campeona ah
+como todo ay sí
 ahora como
 soy no quieres por eso te vez pronto ay que raro que muy pronto ahora si
-no es que la vez pasada comió mucho 
+no es que la vez pasada comió mucho
 todos quedas fulano
-ya ya me vine ya por  
-ya ahorita ya que ya no  pero bien eh que me alegró que termine dicen
+ya ya me vine ya por
+ya ahorita ya que ya no pero bien eh que me alegró que termine dicen
 ay sí después de que termine hablar contigo me toque poner a estudiar porque maná te un examen
 y
 vicente existe
 acuerdas vayan a las siete y sí tu mamá que tu le hizo tu por porque las ocho y yo llegaron a las ocho menos veinte
 y no
 el día estaba que tuve le había dicho primero a las nueve en dijo ay no es muy tarde mejor no que mejor que que sea a las siete dijiste tu
-ah 
+ah
 ah lo que sea mejor a las que está bueno
 no porque
 entonces a las ocho llegaron escuchó menos veinte este que estaba tu nueve
@@ -3662,9 +3662,9 @@ sí pues nada es amor extraño mucho
 pero y y yo también que venían es mi hermana viniste ya falta poquito y se ven una banda
 diez y hacen falta diez días
 y linda sí
- contando
+contando
 yo estoy nervioso y no sé porque
- qué música multa a ser
+qué música multa a ser
 pero sí tienen más prático ver hasta me saludas aunque se
 y sí verdad que voy a llegar como como decía mi abuelita como yo juntaba mi ropa
 ah
@@ -3672,7 +3672,7 @@ en la ropa que iba a pensar en una semana y la sí así como un tanaka
 ja
 pues entonces me decían cuando tenía varias cosas así por mi cama que parecida no sé que la viable pero es que había una señora en el pueblo de mi abuelita que tenía un montón de tan lateral sí siempre andaba quieren un montón de tantas en
 venían ponches
-no sí la verdad 
+no sí la verdad
 la veo ah menciona nada me mucha que solo están nantes tan
 ah pues así me decías y así voy a llegar porque tengo que llevar la caja estando llevar el exterior y y realmente
 ah tienes que pagar algo
@@ -3695,44 +3695,44 @@ ya me entiendo o sea meten entre la la ropa me entiendes las diferentes partes t
 mhm sí sí ajá y bueno si voy a
 ya para que no te cobren tikrit
 ojalá que no me cobran porque supuestamente hay un límite como de cien dólares o doscientos pero la verdad no sí
-no no te tiene que han tesis que con una chica no  no
-ojalá  y digo no me cobran y no me
+no no te tiene que han tesis que con una chica no no
+ojalá y digo no me cobran y no me
 y pues a mi contra messina cargos sí dicen que que
 ay cuando fui a california mi que me iba a disney
 ah
 y también a los estudios universal
 mm me quitence lo que te preguntar que quisiera contáme quitarte vialli así rápido
- bien mi a mi papá
+bien mi a mi papá
 no y la ciencia veinte meses la forma que vos que te me lanzar no
-cómo no ya viste ya te conozco tanto que te la men 
+cómo no ya viste ya te conozco tanto que te la men
 por dios del que está la viendo hoy
 y ah ajá
 hace como unos quince veinte minutos algo tuyo
-ajá sí  de qué color
+ajá sí de qué color
 y blanco
- a estos a tener todos que ver
+a estos a tener todos que ver
 ah la existe y estás viendo ciudadana y está bien oye sabes directamente como unos veinte minutos como te digo y
 ah hablando de algo ajá
 y no es importante que mande nos sigue con
-no tanto  hablando de algo parecido ayer en la mañana salimos con canal a comprar unas cosas al supermercado
+no tanto hablando de algo parecido ayer en la mañana salimos con canal a comprar unas cosas al supermercado
 sí sí sí
-pero fuimos a la capital ah ay yo estoy en el pueblo  tres fuimos a la capital entonces ah te compré la  ah
+pero fuimos a la capital ah ay yo estoy en el pueblo tres fuimos a la capital entonces ah te compré la ah
 comprar me que me compras
 no pero si ahí te lo enseño ese sí es para ti para ti no es ni
 si que que me compres viviendo
-no sé era para dejarte con la  
+no sé era para dejarte con la
 ah sí es horrible
 eh ay
 horrible estas desconocidos placentera quiénes cosita que quisiera que sea verdad yo no
-ajá ya te veinti 
+ajá ya te veinti
 yo no yo nada más que son aquí en inglés
-sí sí voy a una muy 
+sí sí voy a una muy
 de verás
 tria de navidad
 a dónde la depender la muy hace te la quitaron
- ya
- ay y cuéntame qué dice regina ella baile para su caso es otro lado
- 
+ya
+ay y cuéntame qué dice regina ella baile para su caso es otro lado
+
 yo no
 no nada o sea no ella se queda sin
 qué pasa que tengo que pensar anteriormente ta hay quince
@@ -3744,7 +3744,7 @@ ajá
 ah ya y ahora no te habla
 o sea si no hablamos pero o sea para mía no
 que les y ella contigo
- y que
+y que
 se ha portado igual de una persona de antes o a cambio un poquito
 yeah
 sí por andar con un muchacho
@@ -3783,7 +3783,7 @@ cómo le va de que
 y lo traen siempre en la escuela
 sí verdad o de mi banca y lo dejó y en el retrato me lo bueno en la bolsa de las llamadas am en
 pues me llegan a
- ah ya pero nunca te hablado media clase
+ah ya pero nunca te hablado media clase
 no ya le dije que se hable hable mejor a las once media a veces poniendo cuando se acabo de ver la pero pues lo dejo todo el de prendido no cuando ya veo que llamas tu no le falta nada le prendo en el recreo porque por ejemplo este metieron algo que éste es el buzón universal
 sí
 si estaba pagado o fuera del haría o ocupado
@@ -3837,7 +3837,7 @@ no creo
 bueno porque sería no entendía clases romper es pero este no he ido y cierta media clase de no media hora libre empezar a ese sería pero conteste y colgaron
 no no creo que sí
 y se llevan bien y
-solo dios  que entonces no me puedes decir mi más
+solo dios que entonces no me puedes decir mi más
 sí acá pues este entonces cómo le cuesta allá este
 en los vaya
 en el taller me mandaron un trolley y me
@@ -3852,7 +3852,7 @@ ajá yo estoy repetir pero pues llevo haces su clase guitarra mhm no sé si si l
 si esta clase de ver como yo tengo que estudiar le parecidos y me regresé y ustedes espinosa se se le hable y debido a eso
 bueno no te entendí su última parte
 de de
- y a ver que explico ves a ver que no subieron puertorriqueños
+y a ver que explico ves a ver que no subieron puertorriqueños
 no no sí no estaba en casa de lilia y me
 ah pero sí estuvo en casa lilia
 sí rumbo nosotros que le para ver si no sabía parado por el estilo o algo
@@ -3887,7 +3887,7 @@ que viene con la más
 oye y este sí es eso
 y tu
 sí
-claro 
+claro
 ah
 oye y que te la madre
 bueno
@@ -3915,7 +3915,7 @@ te acuerdas y que ya tu elije zona nomás ya llaman de la ni más falta el tuyo 
 ya me quieren demás eh
 ya cualquier día de estos no sé
 pero también es el de ellos
- no llagar no ya lo
+no llagar no ya lo
 ya lo increment
 ya lo incrementen
 también
@@ -3933,7 +3933,7 @@ que tienen una mugre no
 no porque bueno eso espero un rato
 pues una pobreza mucho porque tienes primero armas
 sí pues
- ay qué pasa mijo
+ay qué pasa mijo
 pues que va haciendo uso de la llamada esta
 ah sí ay que tarde mhm oye
 ah una tarea para mañana y todavía me hecho nada más

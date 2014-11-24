@@ -66,7 +66,7 @@ sí pero pero sigue siendo bastante triste
 creo que sí sí no sé de repente en el futuro decida ver
 sí es duro
 es me me me decide por llevar menos cursos no sé tu cuántos cursos ya más o menos por sitios
-um depende y pero y en general cinco pero ah a lo digo ah no solo es como cua  el de cuatro pero ahora estoy tomando cinco
+um depende y pero y en general cinco pero ah a lo digo ah no solo es como cua el de cuatro pero ahora estoy tomando cinco
 ya y y tu
 sí pero en verano en en el pasado la gente solo toma cuatro
 ya
@@ -74,9 +74,9 @@ me parece sí pero en bueno en general la gente toma cinco
 entiendo y aparte trabajas o
 claro
 o te dedicas sultán a a a tus estudios
-unas con  en la biblioteca de es de votar y pero es eh ahí en por trabajo porque cuando estoy ahí
+unas con en la biblioteca de es de votar y pero es eh ahí en por trabajo porque cuando estoy ahí
 estudio entonces no es sí
-ah pero muy ventajoso que qué a qué qué qué haces en el en nada yo temen trabajo en el en en el ópera pero pero yo soy un sobres 
+ah pero muy ventajoso que qué a qué qué qué haces en el en nada yo temen trabajo en el en en el ópera pero pero yo soy un sobres
 mm
 entonces realmente no me da oportunidad para estudiar
 ah yo asocia eso pero no pero en en cuál cuál parte de la biblioteca en
@@ -104,7 +104,7 @@ ajá
 entonces uno tiene muchísimo tiempo libre o sea no tiene muchas clases
 sí sí sí
 y aparte creo que que sí o sea no te dan mucho trabajo no no estoy seguro no no no
-sí pues pues pues digo pues no no le dan mucho trabajo pero eh en general ellos quieren que uno pues se supone  que que uno se vea
+sí pues pues pues digo pues no no le dan mucho trabajo pero eh en general ellos quieren que uno pues se supone que que uno se vea
 y que uno saliendo todo esté haciendo ejercicio decirte o todo eso verdad
 claro mm mm
 entendiendo todo verdad y entonces ya al final le dan un un examen y esa es la nota de uno verdad pero aquí los estados unidos es
@@ -125,7 +125,7 @@ sí se sí no pero también hay pero todo el trabajo que le dan a uno o tal sí 
 otro trabajo otro trabajo verdad entonces
 sí sí sí y
 cada uno tiene su cada sistema tiene sus ventajas pero en y en perú cómo es en general
-a ver o sea yo te diría también nos hacen trabajar o sea no tenemos como que el equivalente sería admiten 
+a ver o sea yo te diría también nos hacen trabajar o sea no tenemos como que el equivalente sería admiten
 mm
 pero que son sobre todo controles de lectura
 hm mm
@@ -159,7 +159,7 @@ sí
 estresado
 sí sí
 pero no sé como será en wharton no sé
-sí bueno y  diferente porque en un estás también depende bueno depende porque por ejemplo yo los las clases yo tomó en general no tienen
+sí bueno y diferente porque en un estás también depende bueno depende porque por ejemplo yo los las clases yo tomó en general no tienen
 así es algo investigación no solo en general yo trato exámenes y y estuvo pero a clases por ejemplo que tienen más así como pues uno tiene los dos personas pero además tiene proyectos
 ya
 entra tipos que history
@@ -188,14 +188,14 @@ de lo que uno hizo de los de los errores de lo que uno hizo bien
 hm mm
 muchas cosas y también entonces todo todo depende del sin curso pero
 hm mm
-eh sí acá si hay yo casi no tengo nada en general  porque realmente tenía que escribir
+eh sí acá si hay yo casi no tengo nada en general porque realmente tenía que escribir
 ya
 pero un y qué más y ahora y la y el tiempo aquí todo sobre la otra vez verdad
 cómo
 todavía más frío aquí verdad
 bueno sí sí sí sí el el martes creo que fue en la noche que estuvo lloviendo
 sí
-me congelé sí o sea tengo que ir con mi casacón tu vez con mi tengo es me me compro una casaca que que abriga bastante 
+me congelé sí o sea tengo que ir con mi casacón tu vez con mi tengo es me me compro una casaca que que abriga bastante
 exacto sí
 y tengo para sacar a siempre solo con ella pero aun así incluso a veces usando la casaca tame me da frío no pero bueno dentro de mi dorm sí es mucho más este
 hm
@@ -261,7 +261,7 @@ hablamos de del del tema del día pero olvidate se ha hecho una pero todavía me
 qué bien
 porque hay una que es como un petardo y yo ya le estaba diciendo que yo no me quiero juntar con ella ticos ella me quita
 todo las energía y ella siempre está criticando a tomar y yo no quiero no quiero estar en ese ambiente era ella dice sí yo le le ottey tropiezos beso los otros días está diciendo
-escriban cinco cosas que están agradecida radio hace am que usted se creen que usted lea olvidate ella siempre hay tensión estás leyendo algo de religión verdad perteneces 
+escriban cinco cosas que están agradecida radio hace am que usted se creen que usted lea olvidate ella siempre hay tensión estás leyendo algo de religión verdad perteneces
 yo a eso es lo único que me ha salvado la mente épico si no si yo me pongo a criticar que todo mundo me critica y y yo sé que yo soy una persona buena y que dios me sienta como yo soy
 si me vaya a por la gente ya me hubiese tierra por la ventana
 sí
@@ -340,14 +340,14 @@ en entendí sí
 ajá
 y ahora estamos en georgia
 wow ustedes viajaba mucho
- nati perro como dicen
+nati perro como dicen
 ajá eso es bueno eso es bueno moverse así tu ves yo vive
 ajá
 yo viví en manhattan después de viene el verano y ahora me mudé para valen y aquí nos quedamos aunque cuando nos retiremos vamos a vivir hayas
 en florida ático es mi niño mi niño grande y mis nietos viven en florida
 ah entonces van este
 so me gustaría ir me gustaría ir la florida pa estar cerca de ellos pero de aquí que yo vaya ya mi nieto a lo mejor se ha casado
- porque él tiene ya diecisiete ayuda aquí que yo vez divide son diez hayo más abate de veintisiete alomejor se va a casar
+porque él tiene ya diecisiete ayuda aquí que yo vez divide son diez hayo más abate de veintisiete alomejor se va a casar
 nuestra lo ves en otro lado sí
 voy a estar de los bills l ajá
 ah sí nosotros de aquí quién sabe a dónde vamos porque
@@ -360,7 +360,7 @@ sí estoy en la casa con mis niños
 oh oh está en la casa con sus niños ay qué bueno
 mhm sí tengo dos dos veces uno que tiene un año y el otro tiene tres
 oh my car sí sí es mucho trabajo verdad yo hago ni varios de niños yo me visto de payaso y ahora estoy un tratando de imaginar cómo puedo hacer la cabeza de elmo
- porque tengo él él malisse pero
+porque tengo él él malisse pero
 ah sí
 la cabeza es de mi amiga entonces yo y ella decimos pariente se a veces te piden dos y no pudimos ir puede ir solamente una
 una
@@ -539,7 +539,7 @@ denunciar ahora
 exacto la universidad y eso no me conviene
 mm las dos hola otras dos ciudadanía éste pero has averiguado algo sobre eso no porque por ejemplo en chile ahora tenemos la doble ciudadanía yo puedo ser ciudadana estadounidense chilena asistieron
 sí pero lo que pasa que como yo tengo yo creo que no te dejan tener tres
- tienes razón
+tienes razón
 sí
 está un poco difícil
 sí
@@ -610,7 +610,7 @@ veinticinco
 mm oh veintyocho
 okay perdón
 veintiocho
-veintiocho ah yo también 
+veintiocho ah yo también
 ah
 eh pues a a mi para para mi a mi me gusta todo tipo de mu casi todo tipo de música eh desertó rap y uh uh
 eh
@@ -630,13 +630,13 @@ lo que casi toda la música ten que tengo la eh tengo yo tengo otro de quiniento
 ajá
 muchos son muchos más que que he buscado por internet
 exacto
-ah lo que para pero para mi o sea para mi para mi yo necesito música para todo  eso todo cuando estoy trabajando cuando tu estudiando
-eh siempre me gusta la música es lo que me mantiene hartos supongo yo  ah mm lo que para mi sí la música sí somos importante
+ah lo que para pero para mi o sea para mi para mi yo necesito música para todo eso todo cuando estoy trabajando cuando tu estudiando
+eh siempre me gusta la música es lo que me mantiene hartos supongo yo ah mm lo que para mi sí la música sí somos importante
 en ese sentido del
 exa
 me ayuda concentrarme me ayuda a rezar relajarme eh yo encuentro para mi la música me puede cambiar el estado de ánimo sí yo yo puedo estar
 sí
-muy tranquilo y si sí es una canción que me puede poner de mal humor o igualmente puesto de mal humor y puedo escuchar una canción que me alegra 
+muy tranquilo y si sí es una canción que me puede poner de mal humor o igualmente puesto de mal humor y puedo escuchar una canción que me alegra
 exacto exacto no sí yo también yo y por lo menos yo todos todos yo mi yo mi esposo él tocaba en mente por la por algo con shape y valen así
 okay
 hay un bar que queda cerquita de mi casa donde mucha gente viene a tocar todas las noches nada más no es cierto ya a y a tocar instrumento
@@ -707,11 +707,11 @@ sí
 y sí le tienes que queda mucho tiempo y el por lo menos el hay un grupo que quiere que mi esposo me a tocar con ellos
 pero donde ellos se reúnen se reúnen los mexicanos en la noche como a las diez de la noche síntesis practican como hasta las dos de la mañana los miércoles y
 como tiene que trabajar y y la escuela y eso no le da tiempo
-sí ah ya yo a mi me no hubiese encantado tener eh poder primero algún instrumento pero soy pésimo con eso  pero a mi para mi la
+sí ah ya yo a mi me no hubiese encantado tener eh poder primero algún instrumento pero soy pésimo con eso pero a mi para mi la
 músi música eso para mi es bien bien eso para mi yo yo a me más me me me fascina o sea eh yo soy yo puedo para
 yo me me acuerdo de canciones de de muchísimas canciones de
 mm
-canciones que yo puedo pasar años sin escuchar y un momento en eh escucho la la canción nuevamente y después de años puedo cumplo cantar la canción completa 
+canciones que yo puedo pasar años sin escuchar y un momento en eh escucho la la canción nuevamente y después de años puedo cumplo cantar la canción completa
 a mi eso si me pasa que yo sí paso mucho tiempo encantan una canción realidad pero me yo estaba la otra vez hablando con una amiga y
 y está con su escuchamos una canción en la raza que ya no había escuchado como por ocho años y ella se acordaba de la canción completa
 y después pasaron una canción que yo no había escuchado y hace como cuatro años y la la que escuchado y yo sabía la canción y
@@ -726,11 +726,11 @@ y y pues tengo pues de todo tengo un ah una lista de música que solo tiene sola
 tengo una lista completa que esto es solamente de rock en en inglés que eso es básicamente usa es la que uso para cuando voy al gimnasio
 exac
 tengo una lista que es ha de música solamente en español una lista que eso de música que solamente como que música clásica o ópera cosas como que
-para relajación 
+para relajación
 exacto y estudié
 eh tengo un eh una eh todo lo contrario para mi eh para estudiar no puedo tener ese tipo de música no podemos hacer que necesito música
 sí
-que tenga líricas porque me sí no hay si no tiene lírica se es como que me aburre  necesito algo que me distraiga 
+que tenga líricas porque me sí no hay si no tiene lírica se es como que me aburre necesito algo que me distraiga
 qué qué estudias tu
 eh eh contro trabajo con virus
 okay
@@ -738,30 +738,30 @@ en biología
 okay
 de modo que todos siempre necesito o algo que que me distraiga que que me mantiene a atento
 exacto
-sí sí si pongo música como qué clásica no 
+sí sí si pongo música como qué clásica no
 mm
-me tuvemos  me so tengo un como música clásica cuando tengo muchas veces cuando tengo que eh si tengo que soy un un reporte que tengo que concentrarme mucho mucho mucho
+me tuvemos me so tengo un como música clásica cuando tengo muchas veces cuando tengo que eh si tengo que soy un un reporte que tengo que concentrarme mucho mucho mucho
 pues entonces pero siempre desde que era pequeño siempre cuando tenía que estudiar yo siempre estaba escuchando música y mientras cantaba porque estaba leyendo y mi papá siempre me me criticaba de que
-es imposible que una persona pueda leer y cantar al mismo tiempo pero yo no sé para mi siempre funcionó  siempre sacaba buenas modos así que
+es imposible que una persona pueda leer y cantar al mismo tiempo pero yo no sé para mi siempre funcionó siempre sacaba buenas modos así que
 supongo que
 yo tenía una profesora
 no
 que decía que cuando no este está estudiando acá y que se lo tiene algo que te tienes que aprender que si tu lo cantas lo que te tienes que tener te lo aprendes más
 rápido a que si lo les normal
 sí eso no más no vamos para tomar la la música o sea eh uno puede
-aló 
-hola hablas con fabiola 
+aló
+hola hablas con fabiola
 
-y  y así es como funciona y y te y te tanto 
-oh sí  tío también
+y y así es como funciona y y te y te tanto
+oh sí tío también
 sí sí o no y ese tema que tienen que que te dicen para tener conversar y te dan un tema de conversación
- pues hay que hablar sobre los recuerdos
+pues hay que hablar sobre los recuerdos
 sobre lo mejor que te ha pasado en la vida
-wow 
+wow
 y cómo ha cambiado tu vida
 okay
 y qué es lo mejor que a ti te ha pasado en la vida
-son artas como 
+son artas como
 pero lo mejor que tu siente que te ha pasado en la vida
 un
 ese es un buen tema
@@ -771,10 +771,10 @@ yo creo que todo tira conociendo a alguien que no lo hubiese conoció a él no
 sí yo digo lo mismo
 no estarían estos niños aquí
 ajá lo mejor que me ha pasado ha sido conocer a mi esposo
- sí es como
+sí es como
 y los segundo y y lo lo otro mejor que me ha pasado es tener mis hijos
 ah sí
-ser sana estás 
+ser sana estás
 por sí porque sino porque sino hubiese conocido al niño una no no estaría aquí
 y en realidad
 otra no tendría estos niños no no te conocería a ti tampoco
@@ -801,7 +801,7 @@ ah muy bien y yo no había llamó porque decía no no se puede llamar ha
 y las
 yeah más temprano
 sí le chiquillas todas se conectan a través de éste número
-sí 
+sí
 sí sí al al él mismo tiempo al mismo horario
 ah usted
 y y se conectan pos yo también
@@ -811,9 +811,9 @@ sí pero yo no sé si puedes tu hacer dos llamadas en en el mismo
 ajá yo no sé se escucha la vos de los niños hermosa ajá
 si se escucha tan aquí siete
 se escucha muy super clarito ya
-dependiendo 
+dependiendo
 se están y qué estás haciendo para que se vienen
-ah están pendeja los dos sentado en mi en mis pierna y tengo en pelo del crimen también mm sí sí ah 
+ah están pendeja los dos sentado en mi en mis pierna y tengo en pelo del crimen también mm sí sí ah
 se miran y se veía de dicen oye tu te pareces a mi no no no tu te parece a mi
 a nivel ésta es que tienen el chupete amarrado al babero entonces verano le tira chupete alcázar el chupete que tiene agarrado él se lo tira así
 son entretenidos los niños ahh sentirte siente yale hablas
@@ -855,9 +855,9 @@ porque el pero no propuesta mal porque no porque mi acento no es entendí
 no es bueno no
 pues yo sé que están chiquititos ahora no van a no van hablar ahora pero que oh igual está quedando todo esto gravado pues
 sí de los cuatro meses en adelante los niños empiezan a
- ah
+ah
 y tienes planeado que vas a ser para navidad o para el día de gracias
-para el día de gracias vamos a ir a con mi con los abuelos de galicia  porque mi
+para el día de gracias vamos a ir a con mi con los abuelos de galicia porque mi
 ya
 mi suegra está arreglando la casa
 sí
@@ -869,7 +869,7 @@ mm no hubo una oportunidad tu también
 no todavía
 oh y tu
 so a los ni los niños ya van a estar grande para la tener la idea ya van a jugar
- sí
+sí
 vos o
 y tu ya tienes terminó para la navidad
 estoy pensando en ah comprar vamos a comprar el arbolito
@@ -881,7 +881,7 @@ de verdad
 sí
 un autobús de verdad o un auto
 un auto control remoto grande que
-no 
+no
 ehh de siento sesenta dólares lo encontré en oferta a cincuenta dólares
 y tu de qué tipo de autos es
 eh como reyes mon
@@ -906,17 +906,17 @@ y si y si se entretiene arto y yo le digo que es bueno para el leer más rápido
 compré allá eh un regalo de parte yo rentan
 um
 que es un
- 
+
 para la computadora tiene eh para mover el mauss
 
 tomar ese el mauss y tiene una calculadora
 el mouse una operadora
 no no no la parte donde tu mueves el mouse como para visto
-ohh  esa esa esa cosita de plástico
+ohh esa esa esa cosita de plástico
 sí y esa
-hay un a 
+hay un a
 así que compré una para mi suegro y uno para nosotros de parte de manhattan
-eh 
+eh
 y y creo que eso de otra buena idea y no sé porque más
 y van van a estar ahí para uno niños van a ir a
 no ya compramos los pasajes nos vamos para siento nos vamos a crecer a pasar eh quince una semana
@@ -932,7 +932,7 @@ mm
 le dijeron de que está tienen el personal en caso de cualquier cosa le van a avisar
 sí
 es como después te llamamos
-fue una cosa así 
+fue una cosa así
 pero resulta de que todavía no en qué trabajo sí
 um
 todavía está yo también oían emocione le llama esto al mall cool sí nos salen nos vamos
@@ -941,23 +941,23 @@ mariscos sí sí pero
 um
 eh igual y yo pienso le digo pero cómo nos vamos allí y recién compramos la casa cómo me dicen
 eh
-la vende o  derrita porque para encontrar  estás éste tomar las cosas esas de ella
+la vende o derrita porque para encontrar estás éste tomar las cosas esas de ella
 y a mi me cuesta tanto trabajo
- porque te gustó montón igual encontrarlas casado
+porque te gustó montón igual encontrarlas casado
 sí sí después armarla te digo que todavía no le pongo cortinas aporten hasta llegando de a poco
 eh
 las compramos porque en
 uhum
 ya llegando de poco a poco sí llegaron primero unas cortina anoche me vivo otra parte una pan la parte de arriba
 eh
-después me llegó la otra parte de arriba y todavía me falta me tienen que éstas me faltan tres  no más que son que llegar y no yo no
+después me llegó la otra parte de arriba y todavía me falta me tienen que éstas me faltan tres no más que son que llegar y no yo no
 y son son esa las porque del living o
 la del ninguno porque no les puse no les puse eh cómo se dice perciana
 ah no les pusistes percianas
 no porque al resto de la casa le puse percianas pero el income no no porque la las ventanas no son ventanas son ventanales
 ahh
 entonces no no existen de ese tamaño al menos que tu mandes hacer una intencionalmente para eso
- especialmente para
+especialmente para
 hola
 hola
 quién habla
@@ -981,9 +981,9 @@ estás estudiando aquí los estados unidos
 sí exactamente
 que bueno
 tu estudias o trabajas
-no eh tengo he una niña de veintitrés meses y tengo un niño ahora de cuatro días 
+no eh tengo he una niña de veintitrés meses y tengo un niño ahora de cuatro días
 oh es que bonito
-así que no estoy trabajando pero no 
+así que no estoy trabajando pero no
 sí bueno claro
 la no fuera de la casa
 sí claro mucho trabajo en la casa me imagino
@@ -992,7 +992,7 @@ que bueno pero muy feliz me imagino no
 sí un poquito cansada ahora pero muy feliz
 sí cuatro días tiene el niño
 cuatro días
-wow poquitito 
+wow poquitito
 sí
 que joven oye y este entonces tu por que vives en estados unidos has vivido toda tu vida o
 sí eh mis padres son de la república dominicana
@@ -1032,7 +1032,7 @@ ah ya veo muy bien
 entonces
 y
 después de ah
-y qué y qué yo malas más con con este con tus bueno es que otros  en tus y todo porque
+y qué y qué yo malas más con con este con tus bueno es que otros en tus y todo porque
 bueno
 tiene veinticuatro meses la otra no
 eh la tiene veintitrés meses y el otro tiene cuatro días
@@ -1077,9 +1077,9 @@ entonces eh pero tu sabes ella yo sé que ella entendía
 mm
 lo que yo le estaba diciendo en inglés y en español
 sí sí
-y ahora tu sabe especialmente yo sé que ella me entiende porque cuando ella no quiere hacer algo como que se hace la boba 
+y ahora tu sabe especialmente yo sé que ella me entiende porque cuando ella no quiere hacer algo como que se hace la boba
 sí
-yo le veo la carita y yo sé que ella me entiende exactamente 
+yo le veo la carita y yo sé que ella me entiende exactamente
 sí claro pero son muy astutos los medios luego luego no
 sí sí
 sabes
@@ -1121,7 +1121,7 @@ sí sí
 pero sí con tal de que te tenía con otra gente ya sea por lo menos una semana pero
 y también tu sabes tienen los deportes el de en los eh osea los sitios de la comunidad
 sí hay mucho es que hay mucho es porque la comunidad verdad y eso
-sí así que tu sabes cosas así es como como ellos se como se dice son se socializan 
+sí así que tu sabes cosas así es como como ellos se como se dice son se socializan
 sí
 así que tu sabes
 sí sí sí sí yo como osea en méxico eso no es comúnmente no en no conoce no sucede en lo absoluto
@@ -1144,7 +1144,7 @@ es un poquito diferente que vamos sé como se lo presenten en la escuela
 sí eso es cierto y hasta que grado queso darle el ju músculo en
 um no sé eh no he pensado todavía como una más tiene dos años
 sí
-y yo empezado 
+y yo empezado
 con el tiempo ya se va viendo que
 sí así que
 pero como que crees osea tu pues goza piensas darle toda la primaria o porque
@@ -1160,7 +1160,7 @@ eh bueno mi yo era una maestra de educación especial
 ajá
 así que yo enseñaba todo
 ah okay ya veo
-así que yo tu sabes lo único que yo si yo no sé algo 
+así que yo tu sabes lo único que yo si yo no sé algo
 ajá
 yo no entiendo el tema lo que sea entonces yo misma me enseño para yo puedo enseñarle a los niños
 ora okay ya veo
@@ -1208,7 +1208,7 @@ así que tu sabes yo no le esperando hace en la escuela formal
 okey
 pero si le cuidando o la estoy educando
 mhm
-poquito a poquito ya ella sabe el abecedario bueno sabe la canción 
+poquito a poquito ya ella sabe el abecedario bueno sabe la canción
 sí él vivía
 sí ajá entonces sabe eh los números
 sí
@@ -1218,7 +1218,7 @@ sí no toda pero poquito a poquito
 sí que bueno
 así que tu sabes así qué
 sí una zona bastante interesante
-sí 
+sí
 que yo no conozco nada no sé como so sí estuviera en esa entonces yo no sé como le haría porque yo nunca me me imaginaría como
 darle clases yo a mi hijo yo no podría porque también digo la va yo no estoy tan osea eh no no tuve una educación en cuanto como dar clases me entiendes
 mhm
@@ -1237,41 +1237,41 @@ no es ningún problema porque ya yo tengo la experiencia yo no sé tu sabes como
 mi nombre es mariza palacios
 hola buenas tardes mi nombre es lorena suarez estoy aquí en san antonio tejas
 hola
-hola eh pues el tema del día de hoy es de lo más conmovedor no 
-sí  mi también me ha costado pensar cuál es lo mejor y cuando lo peor
+hola eh pues el tema del día de hoy es de lo más conmovedor no
+sí mi también me ha costado pensar cuál es lo mejor y cuando lo peor
 exactamente ahorita que bueno pasé a los recuerdos dije yo bueno los recuerdos son presisamente como lo más importante que te puede a uno pasar en la vida porque vive como de recuerdos no
 exactamente con tanta y no se en cuanto más tiempo pasa más recuerdos anoche no sé no sé quién cual elegir para empezar
 ah
 por ejemplo el mejor
 así es el mejor bueno yo soy mamá
-sí yo también 
- y talvez sí sí quisiera que pensar en lo mejor que me ha pasado a lo mejor es eso es tenido a mis hijos recuerdo que en el momento en que estaba yo teniéndolos dije yo esto es lo mejor que me ha pasado en toda mi vida entonces quiero 
+sí yo también
+y talvez sí sí quisiera que pensar en lo mejor que me ha pasado a lo mejor es eso es tenido a mis hijos recuerdo que en el momento en que estaba yo teniéndolos dije yo esto es lo mejor que me ha pasado en toda mi vida entonces quiero
 claro
 quiero ser de consecuente digamos con ese comentario que yo me hice en mi misma en el momento que estaba sucediendo pero sin embargo debe deben haber otras cosas
 maravillosas y talvez no puede uno seleccionar solamente uno verdad
 claro pues estaba pensando que y además preguntaba que si no que acudido ese eso como dice sido su vida diferente novienta en su caso de no me tenido sus hijos
-sí sí sí pues no me hubiera gustado 
+sí sí sí pues no me hubiera gustado
 
 porque porque ahora ya son grandes ellos me han aportado oh bueno tantas cosas bellas no que talvez yo misma por mi cuenta no hubiera sido suficiente para darme tantos recuerdos y tantos
 eh emociones positivas y negativas luego también pues no todo es hermoso no yo oí interesante pues tengo un hijo que que que tiene algún probé un problema de salud y eso también es muy doloroso no
 sí
-sí y y bueno este pero sin embargo son las emociones más salís más amorosas y más tiernas y más r eh bueno y está el marido verdad el esposo 
-sí y es que nos  pero los hijos los hijos
- ese también tiene mucho mucho que ver 
-sí 
+sí y y bueno este pero sin embargo son las emociones más salís más amorosas y más tiernas y más r eh bueno y está el marido verdad el esposo
+sí y es que nos pero los hijos los hijos
+ese también tiene mucho mucho que ver
+sí
 en en la vida de uno no y este
 no él
 pero sí yo yo pensaría que no puede ser nada más uno solo un solo vivien
 claro
 ahora un evento doloroso un recuerdo doloroso pues la muerte de mi mamá por gen
-claro sí la muerte algún familiar o un ser querido tiene que ser lo peor que puede pasar a 
+claro sí la muerte algún familiar o un ser querido tiene que ser lo peor que puede pasar a
 y sí sí sí por la enfermedad de mi hijo también no eso también
 también
 es bien doloroso pero como digo pues no puede uno eh decir que solamente uno pero es bonito intentar pensarlo no
-claro toda como no las uñas parte de la pregunta era que que que hubiera sido de las de su vida este que no te no pero cuido  ese  o doloroso
+claro toda como no las uñas parte de la pregunta era que que que hubiera sido de las de su vida este que no te no pero cuido ese o doloroso
 eh sí
 o sea que no se seria que esa persona estaría ahora todavía por ejemplo en mi caso mi mamá vive pero mis mis abuelos los dos son fallecido hace tiempo
-y no tuve oportunidad de despedirme de ellos y porque ya lejos entonces quizás las sería que que hubiera sido de si la mi vida había sido diferente de intervino difícil o porque claro ellos  será a mi marido ni a mi hija tampoco
+y no tuve oportunidad de despedirme de ellos y porque ya lejos entonces quizás las sería que que hubiera sido de si la mi vida había sido diferente de intervino difícil o porque claro ellos será a mi marido ni a mi hija tampoco
 entonces pues sí
 exacto exacto mhm
 claro la vida sería muy diferente
@@ -1280,15 +1280,15 @@ aquí en estados unidos casi poco hace por casualidad
 ajá porque tu eres española
 y yo sí soy span
 ajá sí
-y vine aquí a estudiar peri con la esconda  estudiar pero lo conocí uno y acabe espérame y llevo aquí doce años
+y vine aquí a estudiar peri con la esconda estudiar pero lo conocí uno y acabe espérame y llevo aquí doce años
 ajá
-y nada tengo una hija de cinco años es no pude decir bueno mi ha cambiado claro porque los hijos se cambian a uno en la vida pero todos es tan pequeña que todavía le queda tanto 
+y nada tengo una hija de cinco años es no pude decir bueno mi ha cambiado claro porque los hijos se cambian a uno en la vida pero todos es tan pequeña que todavía le queda tanto
 sí claro que sí ajá
 y entonces pues nada no sé es diferente con los hijos son mayores sí se hacen más independientes pero todavía tengo que pasar por eso
 sí sí y y de verdad son tantas cosas y tantas etapas
 y claro
 y sí pero bueno esta esperar de cuando son chiquitos es de la más amorosa
-sí  sí todo el mundo me dice igual sí
+sí sí todo el mundo me dice igual sí
 mhm eso es de las más amor y bueno ya cuando ellos crecen y hacen su vida por su cuenta por ejemplo pues es bien bonito pero ya no más recibe uno como las
 oye mamá pues que me fue muy bien en estoy oye mamá pues que esto yo eh ya es así como a nivel conversación como a diez
 no hay tanta dependencia no hay tanta cercanías y
@@ -1320,13 +1320,13 @@ mhm sí porque esto es así como muy como muy completo como muy no se estudia pa
 sí no
 ser humano no se estudia para aprender a amar pero finalmente como que es la emoción mas profunda y más completa no
 sí como le digo a mi hermana que ella no tiene hijos y le digo tu estartelo cepas hasta que no seas mamá no vas a saber lo que ser una mujer digamos más
-completa porque ellos tienen llevan veinte años casados pero todavía tienen tienen hijos no no creo que vayan a tener y entonces pues es difícil explicar 
+completa porque ellos tienen llevan veinte años casados pero todavía tienen tienen hijos no no creo que vayan a tener y entonces pues es difícil explicar
 es difícil explicar
 es muy difícil explicar bien no está como es
 pero pero dice uno que bueno que yo si tuve no porque no me hubiera gustado perdermelo
 sí yo lo tuve por eso porque digo yo cumplí los treinta años y digo bueno yo creo que ya es hora de que o ahora o o o tenemos una hora o ya nomás mayor no quiero tenerlo porque
 pero para criar a un hijo y tener mucha paciencia mucha energía y muchas
-mucha energía  así es
+mucha energía así es
 de todo sí sí y mi hija que es sí sí requiere mucha paciencia mucho mucho sacrificio
 ajá
 y
@@ -1344,14 +1344,14 @@ sí pues sí con si la comparo con mi sobrina que son tan diferentes yo pienso m
 sí con con todas las cosas difíciles que se le pongan enfrente los retos
 claro
 no tengo una hija la más pequeña que es un poco así y ella además de ser muy buena en las cuestiones de la escuela pues es una excelente deportista
-exacto sí  eramos que queremos que mi hija también practique algún deporte pero queremos esperar que son un poco más mayor porque con cinco años no sé quizás demasiado pequeña pero
+exacto sí eramos que queremos que mi hija también practique algún deporte pero queremos esperar que son un poco más mayor porque con cinco años no sé quizás demasiado pequeña pero
 ella tiene el cuerpo digamos al ser deportista y quizás eso le ayude terminar a desarrollar más y
 a su carácter poderlo oh también
 sí
 como que orientar no mhm
- y y quizás se calman
-y que se establecen 
-sí  sí me hace falta porque a veces  vamos a dormir antes que ella no podemos más sí
+y y quizás se calman
+y que se establecen
+sí sí me hace falta porque a veces vamos a dormir antes que ella no podemos más sí
 sí sí sí necesitan cansarse que barbaridad
 no sé hay que sí me dicen que es la edad
 en dónde viven ustedes
@@ -1370,9 +1370,9 @@ bueno después que me que embarazada la niña la vemos criar en casa no queremos
 mhm mhm
 no queremos dejarlas sola en un veintiocho en la
 sí pues es buena decisión
-sí no sí  es bueno eh
-yo la apoyo   hay que tomar muchas distantes para tener toda la energía necesaria
- mientras se pueda clave ahora ya sí sí sí y
+sí no sí es bueno eh
+yo la apoyo hay que tomar muchas distantes para tener toda la energía necesaria
+mientras se pueda clave ahora ya sí sí sí y
 y ya ella verás como cuando pase más tiempo sí yo ya mi hija más pequeña cumplió quince años ayer
 wow
 entonces ya cuando cuando veas para atrás tengas todavía muchas más memorias muchos más recuerdos más vivencias de todos los los glóbulos también de ella que son los tuyos porque
@@ -1389,7 +1389,7 @@ eh yo estoy aquí en el estado de idaho
 ajá
 este en un lugar que se llama robert sí y tu de dónde estás hablando
 ah okay yo estoy en tejas en san antonio
-wow un poquito retirado 
+wow un poquito retirado
 ajá por ahí andamos mhm
 sí sí pues ya ve nos tan pues ya vez que nos tocó el tema de las películas un
 no sí
@@ -1398,7 +1398,7 @@ ajá
 y la verdad yo he visto algunas que que realmente tienen más grocerías que son eje tre que em son más como más violentas y más
 más así son las de las vejes las déjeme que las vegetales en me he dado cuenta
 ajá ah
-entonces pues yo no entiendo mucho de eso 
+entonces pues yo no entiendo mucho de eso
 pues mhm sí yo no ajá yo no he hecho muchos caso de esas de esas he clasificaciones
 ajá
 termino por no entenderlas tampoco muy bien
@@ -1412,7 +1412,7 @@ ajá
 por esas clasificaciones más me preocupo en todo caso por cuando vamos a ver una película que sea una película que valga la pena que tenga algo de interés y no ir a cualquier película entonces la clasificación
 ajá
 no me interesa tanto como la calidad y los comentarios que escucho sobre todo las películas no
- ajá  ajá 
+ajá ajá
 ese es eso es uno lo que más me llama la atención un poco es no sé si te pasa a ti lo mismo siempre vas tu con vas solo o vas con
 no yo yo soy casada yo tengo oeste tres años de casada y la verdad yo sí tengo una nadamás tengo un niño tiene veinte meses
 ajá
@@ -1602,7 +1602,7 @@ eso es esas películas son reportan pues porque la mayoría de la gente son muy 
 porque no hay información
 sí es cierto
 la información que que tenemos todo es propaganda entonces es portante ver otros versiones de lo que está pasando en el mundo no solamente de la versión de las disuasión de bush
-sí es cierto pues yo yo creo que lo de la clasificaciones hoy día es bien relativo yo sé que tienen él trece tienen  claro que una aquí son
+sí es cierto pues yo yo creo que lo de la clasificaciones hoy día es bien relativo yo sé que tienen él trece tienen claro que una aquí son
 fobia verdad pero te yo creo que la agarré o estos días está bien estirado lo que se permite no se permite sí que estoy de acuerdo de que
 esas películas verdad que no tienen yo por ejemplo eh muchas películas de pandilleros que que son pandilleros muchos pandilleros son los que van a verla porque como
 mhm
@@ -1690,9 +1690,9 @@ yo me acuerdo cuando era una bebé y ahora está ya brincando y corriendo por to
 hola mi nombre es mariza relacionces de filadelfia
 hola marisa es carolina de aquí desde los ángeles
 hola buenas
-y bue bueno aquí es buenas tardes 
-hoy verdad sí que son tres horas antes 
-ay yo decía mi madre todo va a ver  oye hoy nos tocó el tema dificilísi
+y bue bueno aquí es buenas tardes
+hoy verdad sí que son tres horas antes
+ay yo decía mi madre todo va a ver oye hoy nos tocó el tema dificilísi
 muy difícil sí
 ay mamacita querida porque yo soy de venezuela
 mm
@@ -1704,7 +1704,7 @@ y y tu sabes que ahorita estamos viviendo un momento bien tirístico justamente 
 sí
 they entonces ay mamacita querida
 si me pa y bueno a mi me pasa parecido que lo que tengo que decir tros unidos tampoco es muy positivo por porque ah mm soy de izquierda de todas maneras entonces pues
- wow no
+wow no
 lo de lo de estados unidos si que es que
 esta fuerte esta
 esta muy fe
@@ -1739,7 +1739,7 @@ eh solamente oímos lo que no son los que ellos quieren que oigamos
 correcto correcto y ponen incluso este a veces tergiversan
 mhm
 tergiversan lo que esta ocurriendo y entonces siempre yo me encuentro po con personas que por ejemplo me dicen cónchale y qué opinas tu del loco ese que tienes como presidente y
-yo ay mamá querida me tocaron el punto  bueno la verdad es que yo con ese loco estoy totalmente de acuerdo ah bueno yo lo que te
+yo ay mamá querida me tocaron el punto bueno la verdad es que yo con ese loco estoy totalmente de acuerdo ah bueno yo lo que te
 quería decir era que parece que ya han dicho un poco barbaridades no
 yeah
 y yo ay dios mío tonto cien señor porque es un tema sus originalmente delicado
@@ -1784,7 +1784,7 @@ sí malas malas si tu eres research no terrorista au eres de antiyanki vete de a
 correcto
 y yo tu prefiero este país no primeros países es son los líderes del país
 exacto todo eso es lo que a mi a veces me dicen qué haces tu aquí
-sí 
+sí
 yo mira eh yo pudiera estar en venezuela y no apoyar al presiden pesar que el el hecho de que tu estés en un
 país o o no o sea que te fueras de tu país no implica que tu tengas una posición
 mhm
@@ -1797,12 +1797,12 @@ o sea que tu no tienes que estar aquí o allá para apoyar o para no apoya o sea
 sí
 pues qué haces tu aquí bueno lo mismo que quizás estarás haciendo tu gracias a dios que tu estas aquí no tu en venezuela
 no pero también en españa es lo mismo lo que pasa que es dis es diferente el gobierno elige ser pero aunque fuera de derecha haces una otra mentalidad porque
-pueblo cuando está de acuerdo se echa la calle y y se manifiesta ciones y tejano  eso nunca se me yo nunca lo he visto
+pueblo cuando está de acuerdo se echa la calle y y se manifiesta ciones y tejano eso nunca se me yo nunca lo he visto
 correcto correcto no fíjate que con todo el problema está de la sobrinas que de verdad eh estado pero mira
 tu trabajas mhm
 de una manera sorprendentemente alta que ya la gente no puede eh no no hacen protesta yo digo no pero qué pasa qué pasa con ésta gente o sea
 supuestamente a ti cuando te afecta tu bolsillo cuando tu reaccionas pero pareciera que no no sé qué lo que pasa o o se cambian de carro y compran un carro más económicos no sé
-sí 
+sí
 no sé qué pasa pero no tienen o sea en en general no tienen esa como esa necesidad de protestar ante ciertas cosas
 sí
 sin embargo te digo no sé de repente aquí tu estás en en pennsylvania me dijistes que
@@ -1845,7 +1845,7 @@ mhm
 ay madre mía yo tengo seis aquí y y estamos por regresar si dios permite
 sí yo cuando llegué jamás de clinton que el país llama en una en una etapa increíble mucho trabajo todo mundo estaba contento la economía estaba para arriba
 sí y como no
-luego entran los republicanos en doy con bush y se fue todo  trabajo como dice
+luego entran los republicanos en doy con bush y se fue todo trabajo como dice
 sí señor sí señor y
 y esta todiendo poco a poco y esta es es yo no sé el el mundo españa ya está
 sí
@@ -1876,8 +1876,8 @@ mm es como un régimen sí
 no afecte nada el eh el proyecto este pero bueno por lo menos es un tema bien controversial yo cuando escuché
 muy
 tema yo me voy muriendo yo paraguay
-yo 
- por qué
+yo
+por qué
 yo digo voy a hablar de bush porque dicen que tengo tanto tanto rabia que tengo que hablar de bush y ponerlo mal porque
 pero bueno pero creo que no todos sola yo escucho tanta gente que dice no que es hablan pero despotrican de él y yo digo
 sí sí sí
@@ -1906,7 +1906,7 @@ oh
 mhm
 wow yo tengo una concluiría que ella es de de honduras también
 ah de dónde
- no no eh no sé pero yo sé que ella es hondureña también
+no no eh no sé pero yo sé que ella es hondureña también
 ah qué bueno
 sí es
 y usted de dónde es
@@ -1931,18 +1931,18 @@ sí
 entonces este
 es difícil siempre
 tuve un poco de tiempo con él no fue mucho igual pero era la primera ilusión que tenía no sé y y yo ya hasta había dicho bueno y hasta decía no pues con él sí me voy a casar
-allá voy a tener tres hijos y ya estaba poniendo mi sí hacen el aire y cuando una vez llegó él y dijo   terminó
+allá voy a tener tres hijos y ya estaba poniendo mi sí hacen el aire y cuando una vez llegó él y dijo terminó
 
 mm
 que había tenía más de experiencia de decir hasta aquí se terminó que yo sé decir oh entonces creo que para él um
-no fue tan difícil pero para mi sí 
+no fue tan difícil pero para mi sí
 mhm y
 y después ahora sí que todo fue para bien porque después conocí a a lo que es ahorita mi esposo y wow y es sumamente mejor
 la verdad
 qué bueno
 entonces no sé
 o sea qué tal has tenido dos novios
-así que  y
+así que y
 qué bueno mejor para qué en problemas meterse en problemas
 y a ti
 cuando no hay necesidad
@@ -1957,7 +1957,7 @@ pero eso este aseo diez años
 wow
 yo tenía diecinueve dieciocho tenía hace
 tu eres casada ahorita
-sí 
+sí
 oh
 y después no bueno nos dejamos de ver después eso no fue tan difícil porque estamos a parte o sea él vivía por un lado yo yo por otro lado
 ajá ajá
@@ -1969,7 +1969,7 @@ y de esa también fue fácil por el hecho de que uno lo deja de veías rápida o
 sí
 de esa manera y
 sí
-eh qué más a ver qué otro después de eso no tuve ningún otro novio formal nuestras sí más qué sí la verdad que las experiencias que nunca tuve alguna mala experiencia como que ni se verdad gracias y 
+eh qué más a ver qué otro después de eso no tuve ningún otro novio formal nuestras sí más qué sí la verdad que las experiencias que nunca tuve alguna mala experiencia como que ni se verdad gracias y
 ajá no sí es que a veces no sé bueno por ejemplo yo creo que en en el caso mío eh con la primera persona yo creo que me encariñé demasiado
 bueno fue muchísimo
 mhm
@@ -1978,7 +1978,7 @@ mhm
 pero igual yo estaba que volaba porque si está es mi primer no yo y y probablemente con él me voy a casar y cosas así
 sí
 y en y él y él creo que que no lo pensaba así él decía bueno ella no sé si era su tercera cuarta quinta no sé
-pero decía sí pues con ella no vaca  voy a andar con miré y la voy a conocer y y hasta ahí en cambio pues yo creo que yo fui la que me hice los ilusiones por eso
+pero decía sí pues con ella no vaca voy a andar con miré y la voy a conocer y y hasta ahí en cambio pues yo creo que yo fui la que me hice los ilusiones por eso
 y este sí sí duele la verdad
 verdad
 sí duele porque yo creo que tu estás ilusionada y tu tienes mucha fe en esa relación y cuando llega una persona y te dice que no pues ya
@@ -1986,7 +1986,7 @@ pero yo creo que ha deber ha de doler mucho más cuando ya convives con la perso
 sí
 yo creo que ha de ser la peor experiencia yo creo de tu vida es i y espero espero nunca pasarla porque no sabemos verdad
 mhm
-entonces espero nunca pasar hasta ahorita tengo tres años de casada y todo está funcionando pues no de maravilla pero todo está bien 
+entonces espero nunca pasar hasta ahorita tengo tres años de casada y todo está funcionando pues no de maravilla pero todo está bien
 gracias a dios
 mucha comunicación y cosas así
 pues sí que tampoco es nada pues todo puede ser perfecto es verdad siempre y además
@@ -2010,19 +2010,19 @@ mhm ya
 y yo creo que también eso y yo creo que eh cuando llevas tu noviazgo por ejemplo puedes saber y conforme vas conociendo a la persona
 que claro no la vas a conocer a fondo verdad hasta que ya estés casada con esa persona pero este pero yo creo que yo creo que
 si ves que realmente no te llevas con esa persona y por ejemplo he conocido a personas eh que le pegaba a sus novios siendo novios les pegaba y las maltrataba y las obligaba a todo lo que quisiera entonces
-yo creo que esas relaciones pues  nunca van a llevar a nada bueno porque si todavía no están casados
-y a tratar 
+yo creo que esas relaciones pues nunca van a llevar a nada bueno porque si todavía no están casados
+y a tratar
 y ya las tratan así imagínate cómo va a ser si van a estar casas no yo tantito van a decir tu eres mi dueña si así ya
 sí sí
 ya como la tratan entonces yo creo que que un que esas relaciones eh yo creo que no van a funcionar nunca no sé o o cambia él o
-o cambia  o se termina una relación así yo creo que si fuera una relación así pues yo yo creo que no ha de doler nada en contra de
+o cambia o se termina una relación así yo creo que si fuera una relación así pues yo yo creo que no ha de doler nada en contra de
 ah de descansar si tienes un novio que te pega o eso
 mhm
-vas a descansar vas a decir ay qué bueno que terminamos  no sé y yo creo que si por ejemplo todo empieza a llevarse bien y todo
+vas a descansar vas a decir ay qué bueno que terminamos no sé y yo creo que si por ejemplo todo empieza a llevarse bien y todo
 todo está de maravilla y de repente alguien no sé se tiene que ir por ejemplo a otro país o se tiene que ir a otra escuela yo creo que ahí sí también dolería un poco
 sí
 porque todo está bien pero solamente por tercera circunstancia pues se tienen que separar entonces yo creo que en ese tipo de relaciones pues sí sí duele pero si es una relación así que
-que te pegan y cosas así pues no 
+que te pegan y cosas así pues no
 ah no sí estos sé y lo lo que es eh y irónico es que eh esas son las usualmente hay veces que son las relaciones que son más difíciles
 para ese para las personas que están en mi envueltas en ese tipo de relación
 eso sí
@@ -2058,13 +2058,13 @@ qué tal fabiola cómo estás
 bien y tu
 bien bien por dónde andas
 en washington they
- en virginia bien 
+en virginia bien
 y tu
 yo estoy en los ángeles
 uf
 
 extremos
- qué bueno y de dónde eres
+qué bueno y de dónde eres
 chilena
 de dónde
 que viene de chillán
@@ -2074,8 +2074,8 @@ no fíjate que no por qué conoces gente bien
 sí conosco unas personas de maracaibo
 oh ya ya bueno tu sabes que ellos tienen un acento más fuerte no sé como mirá y vos mm
 eh sí sí
-ajá 
-mirá yo no eres alérgica 
+ajá
+mirá yo no eres alérgica
 a sí yo creo sí y qué bueno qué bueno porque a veces es tan difícil encontrar venezolanos y y dicen no no realmente conocemos pocos venezolanos esto es qué y yo ay dios mío
 estamos pocos por aquí realmente pero como que dentro de un myspace de mm unos diez años quizás pienso que se han incrementado
 sí
@@ -2154,15 +2154,15 @@ y doce imagínate y y de verdad hemos tenido bueno dos momentos críticos críti
 sí
 yo en otro momento de mi vida me hubiese ido
 yo también
-ajá 
+ajá
 puede importado nada pero
- no me hubiese importado nada nada pero mira ni un comino
+no me hubiese importado nada nada pero mira ni un comino
 ah te digo yo que si me qued me vuelvo a parar problema
 exacto
 ahora la pienso tres veces
 claro entonces ahora de verdad lo pienso digo no pero él tiene otras cosas este me me enfoco las cosas buenas que tienes yo digo es diferente mía nosotros estamos y no tengo porque molestarme si no piensa como yo
 pero tampoco esa quiero permitir que me afectó
-ah claro yo hago lo mismo 
+ah claro yo hago lo mismo
 no o sea exactamente entonces afortunadamente bueno la primera vez fue bien horrible porque yo pensé que era el fin del mundo y bueno ahí estuvimos y duramos un buen tiempo que no nos tratábamos hasta que un buen día y bueno pero es lo que está pasando
 tenemos teníamos casi tres semanas jamás en la vida habíamos hablado tres semanas sin verlo sin hablarnos y durmiendo la misma cama
 oh my guerras
@@ -2216,14 +2216,14 @@ no él es de aquí
 uy imagínate como eh es un poquito más o sea no es que sea más difícil en realidad yo siento que el amor lo puede todo
 ha ha digo yo
 tu piensas que es más fácil
- bueno para ciertas cosas que
+bueno para ciertas cosas que
 oh ah okay okay porque mi esposo es venezolano y
 para ciertas
 y a veces yo digo yo creo que que eso no tiene nada que ver con la con la nacionalidad yo creo que esas son cosas universales
-sí yo creo que para mi es más fácil porque a veces la las discusiones también entretenidas porque no entiendo lo que dice o lo dice  no va bien no no no tenía un punto para pelear
+sí yo creo que para mi es más fácil porque a veces la las discusiones también entretenidas porque no entiendo lo que dice o lo dice no va bien no no no tenía un punto para pelear
 mucho con él porque me da risa
- qué bueno que 
- sí  o cuando estamos super
+qué bueno que
+sí o cuando estamos super
 malo
 hola
 hola
@@ -2238,11 +2238,11 @@ bien y usted
 bien bien
 qué buena vida originalmente
 de chile
-yo  también
+yo también
 de verdad
 sí
-oh qué 
- qué un
+oh qué
+qué un
 y hace cuánto ya que vive acá
 sí bueno no meno en ayudan pero por ejemplo estoy ahí todo el dos mil tres
 oh okay
@@ -2278,8 +2278,8 @@ sí
 sí sí a mi también me llamó ésta semana pero yo no podía contestar
 bueno eh
 semana sí es que oh como media floja situación
-claro sí pues igual derrepente así como no 
-sí 
+claro sí pues igual derrepente así como no
+sí
 pero igual le cierto los demás que bien
 sí
 dios que dan un tema será para
@@ -2288,7 +2288,7 @@ no ah sí eso debe ser
 sí yo creo
 yo pensé yo creo que era porque como está está este tuviera para hacer estar un cómo se llama menos de teléfono y cosas así
 eh
-para para hospitales y y teatros y cosas así entonces querían  ya la gente hablara de cosas respecto a la salud o algo así por ejemplo
+para para hospitales y y teatros y cosas así entonces querían ya la gente hablara de cosas respecto a la salud o algo así por ejemplo
 no lo que pasa es que a mi me dijeron que daban temas porque así como supone que uno no tiene que hablar de cosas personales
 ah porque porque uno debería o porque uno no quiere hacer
 porque uno no no debería hablara como cosas muy personales
@@ -2302,11 +2302,11 @@ no pero no
 sí lo único que m y me dijeron era que había que hablar temas como susto temas como con importante importancia pero
 claro con
 tener como un tema no hablar como puras cabezas de pecado
-claro  la entender expresiones casado
+claro la entender expresiones casado
 pues sí
 sí
 eso si y te gusta aquí
-no no creo sí estoy en atlanta 
+no no creo sí estoy en atlanta
 tres
 sí yo estoy en en washington acerca de cigarros cuando recién llegué a estados unidos claro
 eh
@@ -2314,9 +2314,9 @@ y eso y ahora estoy en georgia estoy al sur traen en bueno así como donde los l
 ándale hacido nada más es más puesto acá pero
 eh
 emm pero ya algo por ejemplo yo estado realmente ocurre queriendo rural así uno
-sí es como campo po y todo bien bien campo 
+sí es como campo po y todo bien bien campo
 sí me imagino igual como uno está depende
-sí es como medio fumen medio es como no sé no es como vida nocturna no 
+sí es como medio fumen medio es como no sé no es como vida nocturna no
 ah sí me imagino oh la lo conocí estoy en atlanta que es una ciudad tan grande supuestamente la vida nocturna debería ser fantástica verás ve
 dos tres años
 eh
@@ -2344,9 +2344,9 @@ oh okay
 entonces claro es como un tráfico horrible o sea demora uno media hora venir a cualquier parte sí que
 sí
 sí el auto
-acá es totalmente diferente 
+acá es totalmente diferente
 ah sí como allá
- bueno hay arto auto la gente ha tiene autos todo el mundo porque es una necesidad por decirlo así
+bueno hay arto auto la gente ha tiene autos todo el mundo porque es una necesidad por decirlo así
 claro
 porque no hay locomoción colectiva pero
 ah
@@ -2362,7 +2362,7 @@ en voy si una ciudad más grande
 mm
 ahí una ciudad más grande pero
 claro
-pero estamos nosotros los es campo 
+pero estamos nosotros los es campo
 ah qué vestido es todo claro pues eh entendí una cosa allá como está la experiencia diez diabética por decir ésta porquería experiencias de washington
 ah
 sí eramos repoco latinos y
@@ -2370,17 +2370,17 @@ no acá hay harto como hay máquinas mexicanos eso sí
 ahh ya listo
 hay artos mexicano y como es más que nada un lugar rural
 mm
-contratan artos mejicanos así como  como para hacer trabajo en
+contratan artos mejicanos así como como para hacer trabajo en
 ah
 la tierra y cosas así
 ah claro como
-entonces casi siempre lo que se ve son mexicano y inclusive y la gente también te confunde por por mejicano 
+entonces casi siempre lo que se ve son mexicano y inclusive y la gente también te confunde por por mejicano
 claro sí sí
 menos latina dicen es mejicano
 claro el tío
- uno tiene que nadie se no no no
+uno tiene que nadie se no no no
 no
- 
+
 claro o sea los gays a tu que creen que yo soy como de spanish y una una cosa acuática sí verdad sí realmente intento nuestra
 sí
 sí como de economía del medio oriente ellos me dicen
@@ -2416,13 +2416,13 @@ y que sus cosas raras pero está haz muy muy lejos de lo que así es lo que la c
 eh
 está adentro de la ciudad atlanta uno ves está en lugar por decir más civilizado enton esas cosas no
 eh
-sí por eso también no pasa ahora 
+sí por eso también no pasa ahora
 oh oh qué raro
 y cómo llegaste a airaho así
-oh me casé con un con un gringo 
+oh me casé con un con un gringo
 ah claro ojalá airaho entonces
-sí  me casé con un gringo así eso cómo y acá y tu cómo cómo
-bueno mi mamá se casó con un gringo 
+sí me casé con un gringo así eso cómo y acá y tu cómo cómo
+bueno mi mamá se casó con un gringo
 oh sí
 sí entonces por eso vinimos a fuimos a ancianos el noventa y uno cuando tenía once años así
 mm
@@ -2438,7 +2438,7 @@ bueno así entonces estoy estoy cotejo un pololo sí como que vivimos juntos
 oh okay
 entonces claro
 okay oh mira y y cómo se mucho de buscarían niño o un un
- sí porque o sea estoy dentro de la ciudad me gustaría sé más la quizá osea yo soy de ciudad o de campo por ejemplo yo vivía en san rafael que no sé si ricas pero
+sí porque o sea estoy dentro de la ciudad me gustaría sé más la quizá osea yo soy de ciudad o de campo por ejemplo yo vivía en san rafael que no sé si ricas pero
 camino de san felipe a los andes que es como un la cuestión más más rural y no travis imaginaba sí cómo
 oh
 típico campo chileno y me encantaba eso
@@ -2453,7 +2453,7 @@ no como
 pero
 no es como un cambio como super drástico por mi venir acá
 sí me imagino
- porque como estaba acostumbrada vivir en la ciudad y todo y ahora acá pero igual hay una ciudad cerca podía contra todo lo que necesitan pero la vida es más
+porque como estaba acostumbrada vivir en la ciudad y todo y ahora acá pero igual hay una ciudad cerca podía contra todo lo que necesitan pero la vida es más
 es más calmada por decirlo así
 claro
 no y todo igual no es bueno porque no que son por ejemplo los eh no hay tanta delincuencia y cosas así una ciudad más grande
@@ -2467,7 +2467,7 @@ bueno <unk> hola juan marcela
 hola cómo estás mi nombre es juan marcela
 sí cómo te va
 oye no hablamos el otro día con
-me parece que sí vos estás en tejas y yo estoy en north carolina 
+me parece que sí vos estás en tejas y yo estoy en north carolina
 sí exacto me da mucho gusto
 este encantada
 no te ha olvidado practicamos to o no sí oye retocarte má la salud
@@ -2559,7 +2559,7 @@ la verdad que sí de verdad que sí
 mm
 o sea qué sé yo según qué cosa sí ha
 pero
-según que especializaron tienen que operar acá pero o sea  tendrías que hacer
+según que especializaron tienen que operar acá pero o sea tendrías que hacer
 sí
 sí por qué te pones en contacto con una organización que se llama the jóvenes
 ajá ah sí
@@ -2765,7 +2765,7 @@ ah no ah sí claro claro que hay autos ahí ahora como los los por
 y pues
 so pero bueno los que otros mostrando porque no están cambiando para que sean más eficiente sabes
 ajá
-pero pero los expedición y esos carros enormes así que gastan sabes solamente puede nada como veinte millas y dieciocho ni al lado algo así  eso es un gasto enorme
+pero pero los expedición y esos carros enormes así que gastan sabes solamente puede nada como veinte millas y dieciocho ni al lado algo así eso es un gasto enorme
 sí exactamente y y claro y pero al mismo tiempo por ejemplo con estos autos de este hay algunos autos pequeños que te dan casi el mismo rendimiento que los ingresos y no son unos no
 por carros pequeños nuevos que no están el mercado norteamericano que están más europeo o latinoamericano donde te que ser mucho más suficientes
 ah sí
@@ -2842,21 +2842,21 @@ va vander expuesto o expuesta
 sí no además que cuando los niños llegan a una edad mi hijo tenía quince dieciséis diecisiete años y me dice no te preocupes porque tu hiciste lo mejor que podías hacer
 mhm
 ah es el veinticinco por ciento de los genes y la educación y el resto es decisión mi decisión de mi vida
-será  con eso que 
+será con eso que
 claro yo yo aprendí oh no estamos porque estoy y
 mm mm
 tan mi celular sonando okay okay te contesto
 okay
 es eh no no me vayas a acostar porque tenemos que hablar doce minutos
 sí
-el  solamente lo fui a pagar
+el solamente lo fui a pagar
 okay ah
 sido y sobre las personas yo creo de las películas a mi me encantan ver películas de terror
 ya
-pero hay veces que los he que que a mi me dan miedo 
-te te espantas a ti misma 
- me dan  y voy a averiguar las películas de terror
-pues ya ya sí  y tu misma te metes mío tu 
+pero hay veces que los he que que a mi me dan miedo
+te te espantas a ti misma
+me dan y voy a averiguar las películas de terror
+pues ya ya sí y tu misma te metes mío tu
 sí
 ya pues a mi no me gustan y yo no las veo tele ninguna clase de esa por eso también es mi decisión país incluso aun teniendo la edad para verla o si es muy agresiva lo que sea no no quiero ver
 sí por eso por eso yo respeto lo que mi hijo merecer me dijo esa vez que el cincuenta por ciento responsabilidad
@@ -2874,11 +2874,11 @@ y sé quince fortín y un y entonces yo digo la yenni no le gusta le da miedo
 ya
 le da miedo mor todos y todo eso
 sí
-pero um sí estoy estoy de acuerdo que la mayor parte de ese criterio que tu le formes y al final cuidarlos si no que quieren televisión cuando perso 
+pero um sí estoy estoy de acuerdo que la mayor parte de ese criterio que tu le formes y al final cuidarlos si no que quieren televisión cuando perso
 sí porque porque
-no dejarlos  con la tele
-sí 
- yo no más vos
+no dejarlos con la tele
+sí
+yo no más vos
 por qué no pues controlarla mapocho el esta película no la puedes network y esta razón porque te falta mante o lo que sé qué uno decirle no es cierto
 que que tener un criterio formado para y a ver algunas películas
 sí por eso te digo o sea no sé pena con decirle no puedes ver oeste no so porque va a llegar el momento en que se va a la casa como te digo en la casa de un amigo una amiga
@@ -2887,14 +2887,14 @@ sí o la misma buena pero la la escuela un poco más supervisado porque eso ya e
 le tenían documentales
 pero yo lo más que le estemos cuando vaya a casa de amigos y tienen a veces la televisión ahí mismo en la pieza lo que se usa tanto o el computador o lo que sea
 y tienen acceso a información sin que los padres no ni los padres ahí tengan idea y y están en la fiesta sí padres que que están escuchando música haciendo tenido lo que sí
-lo el portamiento alguna cosa inadecuada  por eso digo o sea lo que pasa es que sí sí mi hija otro mi hijo lo que sea
+lo el portamiento alguna cosa inadecuada por eso digo o sea lo que pasa es que sí sí mi hija otro mi hijo lo que sea
 se enfrenta esa cituación qué tiene que aprender a valorarse y aprender a responder a eso eso es lo que digo o sea darles tratando de los valores valores la casa
 sí como como superman el niñito que sentido en la ventana y se mató
-me  vos sabes que no están preparados todavía sí
+me vos sabes que no están preparados todavía sí
 que quería volar no te te quieres ser una pregunta
-ajá 
+ajá
 eh tu leíste él las reglas que hay en este juego del teléfono
-sí  okay no 
+sí okay no
 am yo estaba preguntando ni cómo está esto tienen estás preparandote para la navidad
 sí sí sí ya me estoy cerca de estoy comprando los regalos para la familia pero estoy con toda las con otras cosas en mente pero
 anda de cumpleaños no
@@ -2917,20 +2917,20 @@ ah ya sí el clima por eran tres días
 tenía entonces del veinticuatro entonces yo le tengo su regalito le compré lo mismo que le compré a miranda entonces eh
 y qué qué le compraste miranda
 para el re cumpleaños una pantalla de esas que dibujan y se van borrando
-ay qué oí 
+ay qué oí
 porque le gusta ya las conoció entonces le gusta hace repite y por las nos borrando y tien los no solo fuera a todavía pues somos chicos se los mete a la boca
 pero mm entre la y la pantalla sí
 ay qué bonito
 pero sí porque se cositas así
-siendo bananas que emoción 
+siendo bananas que emoción
 claro les entonces esas cosas así me gustó de hacer entonces le compré lo mismo a la andreíta y con eso ya
 y sabes que mata el cumple años
 ya
-pues la misma 
+pues la misma
 quién
 yo yo me acuerdo van estaba allá
-mi suegro 
- suegros
+mi suegro
+suegros
 sí es cierto quién
 el la el apare luis el hijo menor de la sandra
 n
@@ -2943,7 +2943,7 @@ eh fue habito cuando fui a chile fue
 sí ese fue otro cumpleaños que ella tiene crespo
 y ahí dejé de sí ahí dejé el regalo yo
 sí para un sobrino de ella también que vino después
-claro que vino sí sí me dijo que esto se lo había hace pero cómo se llama no 
+claro que vino sí sí me dijo que esto se lo había hace pero cómo se llama no
 no pero la sandra no va a ser cumple años va a ser siete este año
 ay no okay
 no sino que no que para la familia no más porque ya le van a comprar algo mejor para el niño y
@@ -2958,9 +2958,9 @@ claro para tener un regalo más
 es algo cuál es el más grande la chico
 el más chico de todos
 ah sí ya
-y y dice no quiero nada de ropa 
+y y dice no quiero nada de ropa
 pobrecito
-pero el libro 
+pero el libro
 carolina
 tamara
 tamaracomó estás ni
@@ -2968,7 +2968,7 @@ sí y tu vives
 bien bien dónde estás
 estoy en el estado de washington ya
 wow yo estoy en los ángeles
-ah sí 
+ah sí
 sí sí increíble justamente
 sí
 ahorita estás en la llamada y de repenete y yo o sea no pensé que hable mira estaba media más dormida que despierta y yo ay dios mío
@@ -2989,7 +2989,7 @@ nos pasamos al cine por ejemplo en el caso del cine no igual que en que la telev
 ajá
 ve películas que que están en en eh cómo se llama esto los festivales va por eje turistas recientemente terminó el festival internacional de siguen latinoamericano
 y si que estuvo
- 
+
 haló
 no no estoy aquí en mi computadora rusia a
 ah okay este uno aproximadamente y como un mes o menos de un mes este porque desde hace muchos tengo tiempo como te digo pues decidimos que no íbamos a seguir perdiendo el
@@ -3020,7 +3020,7 @@ ajá como que bueno tenemos que hacer diez películas vamos hacer diez película
 a la noche como decimos nosotros de dónde eres tu
 yo soy de panamá
 ah okay yo soy de venezuela
-oh okay 
+oh okay
 ajá sí
 en entonces sí es es
 nosotros decimos así a la máquina no como que bueno si le hagan películas como quieran pero ese salón unas buenas salen y otras veces no salen no salen pero
@@ -3037,14 +3037,14 @@ te lo has o te exageran bastante
 exacto
 porque cuando yo estaba nosotros no en panamá antes que saliera noriega de panamá
 ay imagínate
-y muchos allá y mi esposo sabes que hombre blanco blanco papel  mi papá es moreno y mi mamá es blanca así que yo salí más morena con papá así que
+y muchos allá y mi esposo sabes que hombre blanco blanco papel mi papá es moreno y mi mamá es blanca así que yo salí más morena con papá así que
 cómo salíamos tu sabías que él era americano
 lógico lógico
 nos cometemos los dos nos metíamos por creas que él tenía que al trabajo a la base yo me tenía que ir con él o algo así
 claro
 y y derrepente llegas a la casa y pues la televisión si tienes un pocotón de vender cosas que pasan en panamá yo lo miraba él
-oye tu y yo no toco por allí está mañana  
- exactamente
+oye tu y yo no toco por allí está mañana
+exactamente
 sí así sería siguiente lo mismo digo ay sí ay sí yo creo que están enseñando una cosa que pasaron la semana pasada y exagerando la cosa de qué
 exact
 en ese entonces llegó no no quiere hablar algo que dice la televisión
@@ -3117,13 +3117,13 @@ mi nombre es
 hola me llamo fernanda
 hola fernanda cómo estás mi nombre es claudia
 cómo está
-de dónde estás todo bien 
+de dónde estás todo bien
 de washington
-oh cuál de los dos 
+oh cuál de los dos
 orientan visi
 ah sí porque luego creo hay dos no
 sí washington te
-ah ya y el otro 
+ah ya y el otro
 y tu dónde de dónde estás
 sí yo estoy aquí en el estado de idaho no sé si lo conoces
 sí sí sí claro que sí
@@ -3151,7 +3151,7 @@ pero por ejemplo llegué a tener un un tiempo cable y a veces era pues qué te g
 para estar pues escogiendo mi programa que voy a ver en ese ra en ese tiempo
 mhm
 y a veces pasan películas que realmente uf sí un niño de diez años o nueve años estaba en casa y estaba viendo el estaba cambiándole también al mismo tiempo que yo y
-paro en ese canal habían cosas pero muy  pero muy ya de adultos
+paro en ese canal habían cosas pero muy pero muy ya de adultos
 claro
 entonces dije uf dije yo pensé en los niños dije bueno yo yo soy casada tengo tres años de casada y tengo un un niño de casi dos años
 okay
@@ -3161,7 +3161,7 @@ imagínate al rato qué tipo de caricaturas van a bueno yo me acuerdo que una ve
 mhm
 eran las diez de la noche exactamente las diez de la noche entonces yo prendí eh igual tenía cable allá vendía el la el cable allá
 ha el canal que aquí el diez y seis entonces estaba una caricatura en inglés porque ya la noche las pasan algunas en inglés unas en español
-y está una acató en inglés entonces le dejé y yo estaba mi mamá pues pues  porque estaba viendo un canal que era de caricaturas
+y está una acató en inglés entonces le dejé y yo estaba mi mamá pues pues porque estaba viendo un canal que era de caricaturas
 bueno pues los monitos empezaron a salir desnudos
 ah
 y el monito estaban empezando hacer sus cosas los dos muñequitos y era caricatura imagínate y eran las diez de la noche mi mamá hombres me dijo
@@ -3194,7 +3194,7 @@ entonces su niño estaba viendo eh la han canal de caricaturas y después la ni�
 pues había un programa donde estaba donde estaba una una niña que pasó nada aventuras de una niña y que estaba que que en un hospital
 y de repente pasó ahí mismo del hospital y ya estaban pasando de que cómo cómo su mamá estaba teniendo su hermanito
 ah sí
-ajá  y yo nada y le dije al a a su mamá de ella y me dijo  no ella me dijo  mal de
+ajá y yo nada y le dije al a a su mamá de ella y me dijo no ella me dijo mal de
 de de caricaturas de de que pasan programas y sinceramente estaba estaba no no los dejaban mucho a la imaginación estaba realmente como la voces de bueno pues era una sala de operaciones donde estaba la mujer teniendo su verde y se veía como pasando el bebé y él latinas
 claro
 tenían tienen seis años
@@ -3218,7 +3218,7 @@ y en pleno día porque las telenovelas luego las pasan desde en seis de la maña
 claro
 y ya son así entonces ya no dejan nada la imaginación
 no
-entonces ya los programas ya  ya están clasificados ya ver una escena de de pornografía en la televisión a cualquier hora del día es normal y ya para muchos
+entonces ya los programas ya ya están clasificados ya ver una escena de de pornografía en la televisión a cualquier hora del día es normal y ya para muchos
 padres desgraciadamente se les está haciendo normal
 exacto
 y yo creo que que si los padres hablaran a esa televisora y dirían que o exigirían que que fueran programas como más estrictos a a privacías de escenas de ese tipo de escenas
@@ -3236,7 +3236,7 @@ a pesar de que ya ya estoy casada y todo eso me encanta yo tengo alguna que otra
 fuertes así de de que tengan muchas cosas de de sexo y todo eso porque igual te repito yo voy a tener más hijos y y las rato no voy a estar y
 y por lo menos que si van a poner una película pues que sea una película decente por lo menos que no tenga tantas cosas
 claro claro
-que así como vamos al rato hasta la de dicen a lo mejor van a a tener pornografía verdad  entonces
+que así como vamos al rato hasta la de dicen a lo mejor van a a tener pornografía verdad entonces
 sí no sabe uno cómo vayan a cambiar
 no no sí entonces ya a a la verdad de esto esto sí está llegando la verdad bastante lejos ya va prender la televisión y si tu pues ya ves un comercial
 de toallas femeninas y aparece bien hasta casi casi cos te van a explicar a cómo va al rato van a poner una mujer desnuda y te van a
@@ -3320,7 +3320,7 @@ se va no se las cosas van siendo más liberales digamos y la gente ya no tiene m
 eso es el problema que tiene la iglesia tiene un problema pero no pueden no pueden hacer nada porque
 ajá
 la gente está afectando el echo de que la gente si pues mira pues el es homosexual y vale pues muy bien
-claro sí pues es que hay una  muy extremas de que eh de la familia y el matrimonio él la institución eclesiástica y la bendición de dios para un artículo y eso son lindas
+claro sí pues es que hay una muy extremas de que eh de la familia y el matrimonio él la institución eclesiástica y la bendición de dios para un artículo y eso son lindas
 pues la iglesia y la religión es una forma de discusión igual que la escuela tienen
 claro
 una necesidad primero de cambiar y encontrar nuevas todos formas entonces las cosas de la vida
@@ -3401,7 +3401,7 @@ colombiana
 mhm
 oh pero habla como mexicano
 porque aquí se habla en español mexicano
-ajá 
+ajá
 por eso
 ah ya claro
 uno le pega la uno le pega el acento de vive
@@ -3460,7 +3460,7 @@ para todo porque si veinte saber cómo ta la temperatura fuera pues se va a la c
 quisiera soportes
 antes era sí mhm
 ah salidas con mujeres de todo
-sí sí sí 
+sí sí sí
 no y hasta esta encuestra que estamos haciendo ahora lo encontré por el computador también
 oh también sí oh
 sí a casi entonces computador tiene mucha influencia
@@ -3567,11 +3567,11 @@ un minuto era veinte centavos sí
 y sí y yo me acuerdo que tenía que hablar creo que diez minutos solamente era cómo me costaba como veinticinco dólares
 mm
 y tenía que cuidar mucho que estar con el reloj adelante no
-sí sí sí yo eso me ha pasado 
+sí sí sí yo eso me ha pasado
 sí ajá
-que  sí sí sí  yo sé lo que  tiene que recorrer o
+que sí sí sí yo sé lo que tiene que recorrer o
 ajá claro y mm
- sí pero eh con con
+sí pero eh con con
 yo creo que la verdad que él ojalá que siga avanzando la tecnología yo digo de acá a unos diez años qué más van a sacar no
 porque como esto tiene que ir avanzando no
 lo que pasa es que como está avanzando y y la tecnología ya está en las manos de de más personas
