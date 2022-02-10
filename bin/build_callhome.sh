@@ -13,7 +13,7 @@ for C in $(cd mapping; ls callhome*); do
   for F in $(cat mapping/$C | cut -d' ' -f1 | uniq); do
     echo "## FILE $F"
     cat $1/transcrp/*/$F.txt | 
-    iconv -f iso8859-1 -t utf8 | 
+    iconv -f iso8859-1 -t utf-8 | 
     cut -f 4- -d \ | 
     $BINDIR/strip_markup.pl 
   done | $BINDIR/map_transcription.py mapping/$C > $TARGETDIR/$C.es
